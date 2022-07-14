@@ -88,7 +88,6 @@
 ||reddit.lurkmore.com/r/2dicks1hole^$document
 ||reddit.lurkmore.com/r/2dimg^$document
 ||reddit.lurkmore.com/r/2d_mommydom^$document
-||reddit.lurkmore.com/r/2d_mommydom^$document
 ||reddit.lurkmore.com/r/2dtittytouching^$document
 ||reddit.lurkmore.com/r/2for1^$document
 ||reddit.lurkmore.com/r/2girlbj^$document
@@ -430,8 +429,8 @@
 ||reddit.lurkmore.com/r/actualjokes^$document
 ||reddit.lurkmore.com/r/actuallegaladvice^$document
 ||reddit.lurkmore.com/r/actuallesbiansuk^$document
-||reddit.lurkmore.com/r/actuallycurvy^$document
 ||reddit.lurkmore.com/r/actually_curvy^$document
+||reddit.lurkmore.com/r/actuallycurvy^$document
 ||reddit.lurkmore.com/r/actuallymiffed^$document
 ||reddit.lurkmore.com/r/actuallynotgayporn^$document
 ||reddit.lurkmore.com/r/actualsex^$document
@@ -664,7 +663,6 @@
 ||reddit.lurkmore.com/r/agentprovocateur^$document
 ||reddit.lurkmore.com/r/ageplay_adultblogs^$document
 ||reddit.lurkmore.com/r/ageplaying^$document
-||reddit.lurkmore.com/r/ageplaying^$document
 ||reddit.lurkmore.com/r/ageplayingvids^$document
 ||reddit.lurkmore.com/r/ageplaypenpals^$document
 ||reddit.lurkmore.com/r/ageplaypenpals2^$document
@@ -840,8 +838,8 @@
 ||reddit.lurkmore.com/r/alexchance^$document
 ||reddit.lurkmore.com/r/alex_clark^$document
 ||reddit.lurkmore.com/r/alexclark_^$document
-||reddit.lurkmore.com/r/alexcoal^$document
 ||reddit.lurkmore.com/r/alex_coal^$document
+||reddit.lurkmore.com/r/alexcoal^$document
 ||reddit.lurkmore.com/r/alexcoalfans^$document
 ||reddit.lurkmore.com/r/alexconradedina^$document
 ||reddit.lurkmore.com/r/alexdelaflor^$document
@@ -859,8 +857,8 @@
 ||reddit.lurkmore.com/r/alexisclark^$document
 ||reddit.lurkmore.com/r/alexis_crystal^$document
 ||reddit.lurkmore.com/r/alexisfallon^$document
-||reddit.lurkmore.com/r/alexisfawx^$document
 ||reddit.lurkmore.com/r/alexis_fawx^$document
+||reddit.lurkmore.com/r/alexisfawx^$document
 ||reddit.lurkmore.com/r/alexisford^$document
 ||reddit.lurkmore.com/r/alexisgrace^$document
 ||reddit.lurkmore.com/r/alexis_kline^$document
@@ -1275,8 +1273,8 @@
 ||reddit.lurkmore.com/r/amateurgayporn^$document
 ||reddit.lurkmore.com/r/amateur_gay_videos^$document
 ||reddit.lurkmore.com/r/amateurgfs^$document
-||reddit.lurkmore.com/r/amateurgif^$document
 ||reddit.lurkmore.com/r/amateur_gif^$document
+||reddit.lurkmore.com/r/amateurgif^$document
 ||reddit.lurkmore.com/r/amateur_gifs^$document
 ||reddit.lurkmore.com/r/amateurgifsxxx^$document
 ||reddit.lurkmore.com/r/amateur_gif_video^$document
@@ -1341,16 +1339,16 @@
 ||reddit.lurkmore.com/r/amateurporn_gif^$document
 ||reddit.lurkmore.com/r/amateurporn_movies^$document
 ||reddit.lurkmore.com/r/amateurpornmovies^$document
-||reddit.lurkmore.com/r/amateurporno^$document
 ||reddit.lurkmore.com/r/amateur_porno^$document
+||reddit.lurkmore.com/r/amateurporno^$document
 ||reddit.lurkmore.com/r/amateurpornopics^$document
 ||reddit.lurkmore.com/r/amateurpornovideos^$document
 ||reddit.lurkmore.com/r/amateurpornpicsvideos^$document
 ||reddit.lurkmore.com/r/amateurpornstars^$document
 ||reddit.lurkmore.com/r/amateur_porn_utopia^$document
 ||reddit.lurkmore.com/r/amateurpornvids^$document
-||reddit.lurkmore.com/r/amateurpov^$document
 ||reddit.lurkmore.com/r/amateur_pov^$document
+||reddit.lurkmore.com/r/amateurpov^$document
 ||reddit.lurkmore.com/r/amateurprivate^$document
 ||reddit.lurkmore.com/r/amateurps^$document
 ||reddit.lurkmore.com/r/amateurrimming^$document
@@ -1532,8 +1530,8 @@
 ||reddit.lurkmore.com/r/amsinhd^$document
 ||reddit.lurkmore.com/r/amwf_alice^$document
 ||reddit.lurkmore.com/r/amwf_gifs^$document
-||reddit.lurkmore.com/r/amwfnsfw^$document
 ||reddit.lurkmore.com/r/amwf_nsfw^$document
+||reddit.lurkmore.com/r/amwfnsfw^$document
 ||reddit.lurkmore.com/r/amwfporn^$document
 ||reddit.lurkmore.com/r/amwf_sexytime^$document
 ||reddit.lurkmore.com/r/amxxxf^$document
@@ -1637,8 +1635,8 @@
 ||reddit.lurkmore.com/r/analmasturbation^$document
 ||reddit.lurkmore.com/r/anal_missionary^$document
 ||reddit.lurkmore.com/r/analonachair^$document
-||reddit.lurkmore.com/r/analonly^$document
 ||reddit.lurkmore.com/r/anal_only^$document
+||reddit.lurkmore.com/r/analonly^$document
 ||reddit.lurkmore.com/r/analonlylifestyle^$document
 ||reddit.lurkmore.com/r/analopulence^$document
 ||reddit.lurkmore.com/r/analorgasm^$document
@@ -2344,8 +2342,8 @@
 ||reddit.lurkmore.com/r/aryaxxx98^$document
 ||reddit.lurkmore.com/r/aryonjean^$document
 ||reddit.lurkmore.com/r/as109^$document
-||reddit.lurkmore.com/r/asaakira^$document
 ||reddit.lurkmore.com/r/asa_akira^$document
+||reddit.lurkmore.com/r/asaakira^$document
 ||reddit.lurkmore.com/r/asa_akira_official^$document
 ||reddit.lurkmore.com/r/asada_yuri^$document
 ||reddit.lurkmore.com/r/asahimizuno^$document
@@ -2396,8 +2394,8 @@
 ||reddit.lurkmore.com/r/ashleydungi^$document
 ||reddit.lurkmore.com/r/ashleydunn^$document
 ||reddit.lurkmore.com/r/ashleyemiko^$document
-||reddit.lurkmore.com/r/ashleyfires^$document
 ||reddit.lurkmore.com/r/ashley_fires^$document
+||reddit.lurkmore.com/r/ashleyfires^$document
 ||reddit.lurkmore.com/r/ashleygraham^$document
 ||reddit.lurkmore.com/r/ashleyjane^$document
 ||reddit.lurkmore.com/r/ashleyjuggs^$document
@@ -2510,7 +2508,6 @@
 ||reddit.lurkmore.com/r/asianexchange^$document
 ||reddit.lurkmore.com/r/asianfacials^$document
 ||reddit.lurkmore.com/r/asianfatale^$document
-||reddit.lurkmore.com/r/asianfatale^$document
 ||reddit.lurkmore.com/r/asianfeet^$document
 ||reddit.lurkmore.com/r/asianfemales^$document
 ||reddit.lurkmore.com/r/asianfemboys^$document
@@ -2577,8 +2574,8 @@
 ||reddit.lurkmore.com/r/asian_lover_tributes^$document
 ||reddit.lurkmore.com/r/asianmalesgw^$document
 ||reddit.lurkmore.com/r/asianmassage^$document
-||reddit.lurkmore.com/r/asianmilf^$document
 ||reddit.lurkmore.com/r/asian_milf^$document
+||reddit.lurkmore.com/r/asianmilf^$document
 ||reddit.lurkmore.com/r/asian_milf_preview^$document
 ||reddit.lurkmore.com/r/asianmilfs^$document
 ||reddit.lurkmore.com/r/asianmilk^$document
@@ -2670,8 +2667,8 @@
 ||reddit.lurkmore.com/r/asianwhitebrosr4r^$document
 ||reddit.lurkmore.com/r/asianx^$document
 ||reddit.lurkmore.com/r/asianxxx^$document
-||reddit.lurkmore.com/r/asianxxxvideos^$document
 ||reddit.lurkmore.com/r/asian_xxx_videos^$document
+||reddit.lurkmore.com/r/asianxxxvideos^$document
 ||reddit.lurkmore.com/r/asianyogapants^$document
 ||reddit.lurkmore.com/r/asianyummy^$document
 ||reddit.lurkmore.com/r/asiapanties^$document
@@ -2743,8 +2740,8 @@
 ||reddit.lurkmore.com/r/assadventure^$document
 ||reddit.lurkmore.com/r/assandfurious^$document
 ||reddit.lurkmore.com/r/assandtits^$document
-||reddit.lurkmore.com/r/assandtitties^$document
 ||reddit.lurkmore.com/r/ass_and_titties^$document
+||reddit.lurkmore.com/r/assandtitties^$document
 ||reddit.lurkmore.com/r/assarchive^$document
 ||reddit.lurkmore.com/r/assassinfetishes^$document
 ||reddit.lurkmore.com/r/assaultbreasts^$document
@@ -2827,7 +2824,6 @@
 ||reddit.lurkmore.com/r/assinleggings^$document
 ||reddit.lurkmore.com/r/assinswimsuit^$document
 ||reddit.lurkmore.com/r/assinthong^$document
-||reddit.lurkmore.com/r/assinthong^$document
 ||reddit.lurkmore.com/r/assistedexposure^$document
 ||reddit.lurkmore.com/r/assisting^$document
 ||reddit.lurkmore.com/r/assjob^$document
@@ -2892,8 +2888,8 @@
 ||reddit.lurkmore.com/r/assvspussy^$document
 ||reddit.lurkmore.com/r/asswallpapers^$document
 ||reddit.lurkmore.com/r/ass_world^$document
-||reddit.lurkmore.com/r/assworship^$document
 ||reddit.lurkmore.com/r/ass_worship^$document
+||reddit.lurkmore.com/r/assworship^$document
 ||reddit.lurkmore.com/r/assworshipcaptions^$document
 ||reddit.lurkmore.com/r/ass_worships^$document
 ||reddit.lurkmore.com/r/assymptote_^$document
@@ -3085,8 +3081,8 @@
 ||reddit.lurkmore.com/r/autumnfalls^$document
 ||reddit.lurkmore.com/r/autumnloving^$document
 ||reddit.lurkmore.com/r/autumnpentakill^$document
-||reddit.lurkmore.com/r/autumnriley^$document
 ||reddit.lurkmore.com/r/autumn_riley^$document
+||reddit.lurkmore.com/r/autumnriley^$document
 ||reddit.lurkmore.com/r/autumnrileyxo^$document
 ||reddit.lurkmore.com/r/autumnthrow^$document
 ||reddit.lurkmore.com/r/avaaddams^$document
@@ -3833,8 +3829,8 @@
 ||reddit.lurkmore.com/r/bdsmlive^$document
 ||reddit.lurkmore.com/r/bdsmlr^$document
 ||reddit.lurkmore.com/r/bdsmmaster^$document
-||reddit.lurkmore.com/r/bdsmmemes^$document
 ||reddit.lurkmore.com/r/bdsm_memes^$document
+||reddit.lurkmore.com/r/bdsmmemes^$document
 ||reddit.lurkmore.com/r/bdsm_milfs^$document
 ||reddit.lurkmore.com/r/bdsmmilitarypersonals^$document
 ||reddit.lurkmore.com/r/bdsmmistress^$document
@@ -4461,7 +4457,6 @@
 ||reddit.lurkmore.com/r/bicepdreams^$document
 ||reddit.lurkmore.com/r/bickdickproblems^$document
 ||reddit.lurkmore.com/r/bicuckold^$document
-||reddit.lurkmore.com/r/bicuckold^$document
 ||reddit.lurkmore.com/r/bicuckoldpersonals^$document
 ||reddit.lurkmore.com/r/bicuriousguyschat^$document
 ||reddit.lurkmore.com/r/bicurious_lil_cactus^$document
@@ -4480,8 +4475,8 @@
 ||reddit.lurkmore.com/r/biganimetitties^$document
 ||reddit.lurkmore.com/r/bigareolas^$document
 ||reddit.lurkmore.com/r/bigasiancock^$document
-||reddit.lurkmore.com/r/bigass_^$document
 ||reddit.lurkmore.com/r/bigass^$document
+||reddit.lurkmore.com/r/bigass_^$document
 ||reddit.lurkmore.com/r/bigassaltgirls^$document
 ||reddit.lurkmore.com/r/bigassanal^$document
 ||reddit.lurkmore.com/r/big_ass_big_boobs^$document
@@ -4530,7 +4525,6 @@
 ||reddit.lurkmore.com/r/bigboobsamateur^$document
 ||reddit.lurkmore.com/r/bigboobsdating^$document
 ||reddit.lurkmore.com/r/bigboobsgonemild^$document
-||reddit.lurkmore.com/r/bigboobsgonewild^$document
 ||reddit.lurkmore.com/r/bigboobsgonewild^$document
 ||reddit.lurkmore.com/r/bigboobsgw^$document
 ||reddit.lurkmore.com/r/bigboobsinsmallbras^$document
@@ -4861,7 +4855,6 @@
 ||reddit.lurkmore.com/r/bitches^$document
 ||reddit.lurkmore.com/r/bitches_like_it_big^$document
 ||reddit.lurkmore.com/r/bitchfaces^$document
-||reddit.lurkmore.com/r/bitchfaces^$document
 ||reddit.lurkmore.com/r/bitchfights^$document
 ||reddit.lurkmore.com/r/bitchgazers^$document
 ||reddit.lurkmore.com/r/bitchinbubba^$document
@@ -5125,8 +5118,8 @@
 ||reddit.lurkmore.com/r/blondesinyogapants^$document
 ||reddit.lurkmore.com/r/blondes_nsfw^$document
 ||reddit.lurkmore.com/r/blondesporn^$document
-||reddit.lurkmore.com/r/blondexxx^$document
 ||reddit.lurkmore.com/r/blonde_xxx^$document
+||reddit.lurkmore.com/r/blondexxx^$document
 ||reddit.lurkmore.com/r/blondiebanger^$document
 ||reddit.lurkmore.com/r/blondiebennett^$document
 ||reddit.lurkmore.com/r/blondiebuu^$document
@@ -5147,11 +5140,11 @@
 ||reddit.lurkmore.com/r/blotterporn^$document
 ||reddit.lurkmore.com/r/blowbang^$document
 ||reddit.lurkmore.com/r/blowies^$document
-||reddit.lurkmore.com/r/blowjob_^$document
 ||reddit.lurkmore.com/r/blowjob^$document
+||reddit.lurkmore.com/r/blowjob_^$document
 ||reddit.lurkmore.com/r/blowjobahegao^$document
-||reddit.lurkmore.com/r/blowjobbabes^$document
 ||reddit.lurkmore.com/r/blowjob_babes^$document
+||reddit.lurkmore.com/r/blowjobbabes^$document
 ||reddit.lurkmore.com/r/blowjobbulge^$document
 ||reddit.lurkmore.com/r/blowjobclub^$document
 ||reddit.lurkmore.com/r/blowjobcuties^$document
@@ -5456,7 +5449,6 @@
 ||reddit.lurkmore.com/r/boobsinaction^$document
 ||reddit.lurkmore.com/r/boobsintanktop^$document
 ||reddit.lurkmore.com/r/boobsinthenews^$document
-||reddit.lurkmore.com/r/boobsinthenews^$document
 ||reddit.lurkmore.com/r/boobsinwhiteshirt^$document
 ||reddit.lurkmore.com/r/boobs_lovers^$document
 ||reddit.lurkmore.com/r/boobsmother^$document
@@ -5658,8 +5650,8 @@
 ||reddit.lurkmore.com/r/boysgay^$document
 ||reddit.lurkmore.com/r/boysgonedogecoin^$document
 ||reddit.lurkmore.com/r/boyshort^$document
-||reddit.lurkmore.com/r/boyshorts^$document
 ||reddit.lurkmore.com/r/boy_shorts^$document
+||reddit.lurkmore.com/r/boyshorts^$document
 ||reddit.lurkmore.com/r/boysinyogapants^$document
 ||reddit.lurkmore.com/r/boyssharingtoys^$document
 ||reddit.lurkmore.com/r/boyswithtoys^$document
@@ -5779,8 +5771,8 @@
 ||reddit.lurkmore.com/r/breastexpansionmania^$document
 ||reddit.lurkmore.com/r/breastfeeding_pics^$document
 ||reddit.lurkmore.com/r/breastfeedingyoutube^$document
-||reddit.lurkmore.com/r/breastfriends^$document
 ||reddit.lurkmore.com/r/breast_friends^$document
+||reddit.lurkmore.com/r/breastfriends^$document
 ||reddit.lurkmore.com/r/breastfriendsgaming^$document
 ||reddit.lurkmore.com/r/breastgallery^$document
 ||reddit.lurkmore.com/r/breastgasm^$document
@@ -6369,8 +6361,8 @@
 ||reddit.lurkmore.com/r/buttrface^$document
 ||reddit.lurkmore.com/r/butts^$document
 ||reddit.lurkmore.com/r/buttsandbarefeet^$document
-||reddit.lurkmore.com/r/buttsex^$document
 ||reddit.lurkmore.com/r/butt_sex^$document
+||reddit.lurkmore.com/r/buttsex^$document
 ||reddit.lurkmore.com/r/buttsfromthefront^$document
 ||reddit.lurkmore.com/r/buttsharpies^$document
 ||reddit.lurkmore.com/r/buttsharpies4all^$document
@@ -6487,7 +6479,6 @@
 ||reddit.lurkmore.com/r/camelboob^$document
 ||reddit.lurkmore.com/r/camelsntoes^$document
 ||reddit.lurkmore.com/r/cameltoe^$document
-||reddit.lurkmore.com/r/cameltoe^$document
 ||reddit.lurkmore.com/r/cameltoefans^$document
 ||reddit.lurkmore.com/r/cameltoegirls^$document
 ||reddit.lurkmore.com/r/cameltoehentai^$document
@@ -6499,8 +6490,8 @@
 ||reddit.lurkmore.com/r/cameragirls69^$document
 ||reddit.lurkmore.com/r/camerasquirt^$document
 ||reddit.lurkmore.com/r/cameroncanada^$document
-||reddit.lurkmore.com/r/cameroncanela^$document
 ||reddit.lurkmore.com/r/cameron_canela^$document
+||reddit.lurkmore.com/r/cameroncanela^$document
 ||reddit.lurkmore.com/r/camerondee^$document
 ||reddit.lurkmore.com/r/cameronsucks^$document
 ||reddit.lurkmore.com/r/camgasm^$document
@@ -6523,10 +6514,10 @@
 ||reddit.lurkmore.com/r/camgirlsclipsandporn^$document
 ||reddit.lurkmore.com/r/camgirlsforeveryone^$document
 ||reddit.lurkmore.com/r/camgirlsilove^$document
-||reddit.lurkmore.com/r/camgirlslive^$document
 ||reddit.lurkmore.com/r/camgirls_live^$document
-||reddit.lurkmore.com/r/camgirlsnsfw^$document
+||reddit.lurkmore.com/r/camgirlslive^$document
 ||reddit.lurkmore.com/r/camgirls_nsfw^$document
+||reddit.lurkmore.com/r/camgirlsnsfw^$document
 ||reddit.lurkmore.com/r/camgirlsporngifs^$document
 ||reddit.lurkmore.com/r/camgirls_training^$document
 ||reddit.lurkmore.com/r/camgirlsvideos^$document
@@ -6918,7 +6909,6 @@
 ||reddit.lurkmore.com/r/catarinapetrov^$document
 ||reddit.lurkmore.com/r/catboobs^$document
 ||reddit.lurkmore.com/r/catboys^$document
-||reddit.lurkmore.com/r/catboys^$document
 ||reddit.lurkmore.com/r/catbuttholepictures^$document
 ||reddit.lurkmore.com/r/catchingcreampies^$document
 ||reddit.lurkmore.com/r/cateharrington^$document
@@ -7040,8 +7030,8 @@
 ||reddit.lurkmore.com/r/celebboobs^$document
 ||reddit.lurkmore.com/r/celebbrackets^$document
 ||reddit.lurkmore.com/r/celebbuzz^$document
-||reddit.lurkmore.com/r/celebcaptions^$document
 ||reddit.lurkmore.com/r/celeb_captions^$document
+||reddit.lurkmore.com/r/celebcaptions^$document
 ||reddit.lurkmore.com/r/celebcollections^$document
 ||reddit.lurkmore.com/r/celebcrush^$document
 ||reddit.lurkmore.com/r/celebcucking^$document
@@ -7283,8 +7273,8 @@
 ||reddit.lurkmore.com/r/chanelgrey18^$document
 ||reddit.lurkmore.com/r/chanell_heart^$document
 ||reddit.lurkmore.com/r/chanelpreston^$document
-||reddit.lurkmore.com/r/chanelsantini^$document
 ||reddit.lurkmore.com/r/chanel_santini^$document
+||reddit.lurkmore.com/r/chanelsantini^$document
 ||reddit.lurkmore.com/r/chanel_shortcake^$document
 ||reddit.lurkmore.com/r/chanelshortcake^$document
 ||reddit.lurkmore.com/r/chanelshy^$document
@@ -7343,8 +7333,8 @@
 ||reddit.lurkmore.com/r/charlotte_soles^$document
 ||reddit.lurkmore.com/r/charlottespringer^$document
 ||reddit.lurkmore.com/r/charlottestar^$document
-||reddit.lurkmore.com/r/charlottestokely^$document
 ||reddit.lurkmore.com/r/charlotte_stokely^$document
+||reddit.lurkmore.com/r/charlottestokely^$document
 ||reddit.lurkmore.com/r/charmantshibari^$document
 ||reddit.lurkmore.com/r/charmedexperience^$document
 ||reddit.lurkmore.com/r/chasers^$document
@@ -7371,12 +7361,12 @@
 ||reddit.lurkmore.com/r/chateaufantasia^$document
 ||reddit.lurkmore.com/r/chatpic^$document
 ||reddit.lurkmore.com/r/chattanoogalifestyles^$document
-||reddit.lurkmore.com/r/chattanoogar4r^$document
 ||reddit.lurkmore.com/r/chattanooga_r4r^$document
+||reddit.lurkmore.com/r/chattanoogar4r^$document
 ||reddit.lurkmore.com/r/chattyplanet^$document
 ||reddit.lurkmore.com/r/chaturbabes^$document
-||reddit.lurkmore.com/r/chaturbatecams^$document
 ||reddit.lurkmore.com/r/chaturbate_cams^$document
+||reddit.lurkmore.com/r/chaturbatecams^$document
 ||reddit.lurkmore.com/r/chaturbatefavorites^$document
 ||reddit.lurkmore.com/r/chaturbate_guys^$document
 ||reddit.lurkmore.com/r/chaturbatemfc^$document
@@ -7414,7 +7404,6 @@
 ||reddit.lurkmore.com/r/cheatingsluts^$document
 ||reddit.lurkmore.com/r/cheatingwife^$document
 ||reddit.lurkmore.com/r/cheatingwifevideos^$document
-||reddit.lurkmore.com/r/cheatingwives^$document
 ||reddit.lurkmore.com/r/cheatingwives^$document
 ||reddit.lurkmore.com/r/checklad^$document
 ||reddit.lurkmore.com/r/checkoutthisnsfw^$document
@@ -7562,8 +7551,8 @@
 ||reddit.lurkmore.com/r/chixxx_gifs^$document
 ||reddit.lurkmore.com/r/chlocutie^$document
 ||reddit.lurkmore.com/r/chloe18^$document
-||reddit.lurkmore.com/r/chloeamour^$document
 ||reddit.lurkmore.com/r/chloe_amour^$document
+||reddit.lurkmore.com/r/chloeamour^$document
 ||reddit.lurkmore.com/r/chloeavenaim^$document
 ||reddit.lurkmore.com/r/chloeb^$document
 ||reddit.lurkmore.com/r/chloecarter^$document
@@ -7571,8 +7560,8 @@
 ||reddit.lurkmore.com/r/chloechapman^$document
 ||reddit.lurkmore.com/r/chloecherry^$document
 ||reddit.lurkmore.com/r/chloecooper^$document
-||reddit.lurkmore.com/r/chloecouture^$document
 ||reddit.lurkmore.com/r/chloe_couture^$document
+||reddit.lurkmore.com/r/chloecouture^$document
 ||reddit.lurkmore.com/r/chloefoster^$document
 ||reddit.lurkmore.com/r/chloejadexoxo^$document
 ||reddit.lurkmore.com/r/chloekendall^$document
@@ -7807,8 +7796,8 @@
 ||reddit.lurkmore.com/r/classichotties^$document
 ||reddit.lurkmore.com/r/classicmalmalloy^$document
 ||reddit.lurkmore.com/r/classicmetalshow^$document
-||reddit.lurkmore.com/r/classicnsfw^$document
 ||reddit.lurkmore.com/r/classic_nsfw^$document
+||reddit.lurkmore.com/r/classicnsfw^$document
 ||reddit.lurkmore.com/r/classic_oldschoolcool^$document
 ||reddit.lurkmore.com/r/classicpage3beauties^$document
 ||reddit.lurkmore.com/r/classicpornmags^$document
@@ -8453,8 +8442,8 @@
 ||reddit.lurkmore.com/r/courtneystoddenv2^$document
 ||reddit.lurkmore.com/r/courtneythierauf^$document
 ||reddit.lurkmore.com/r/courtniequinlan^$document
-||reddit.lurkmore.com/r/cousinfuckers^$document
 ||reddit.lurkmore.com/r/cousin_fuckers^$document
+||reddit.lurkmore.com/r/cousinfuckers^$document
 ||reddit.lurkmore.com/r/covercollection^$document
 ||reddit.lurkmore.com/r/covered^$document
 ||reddit.lurkmore.com/r/coveredgravuregirls^$document
@@ -8705,7 +8694,6 @@
 ||reddit.lurkmore.com/r/cuckoldbullpen^$document
 ||reddit.lurkmore.com/r/cuckold_captions^$document
 ||reddit.lurkmore.com/r/cuckoldcaptions^$document
-||reddit.lurkmore.com/r/cuckoldcaptions^$document
 ||reddit.lurkmore.com/r/cuckoldclub^$document
 ||reddit.lurkmore.com/r/cuckoldcomics^$document
 ||reddit.lurkmore.com/r/cuckoldcommunity^$document
@@ -8756,7 +8744,6 @@
 ||reddit.lurkmore.com/r/cuckporn^$document
 ||reddit.lurkmore.com/r/cuckpornmovies^$document
 ||reddit.lurkmore.com/r/cuckquean^$document
-||reddit.lurkmore.com/r/cuckquean^$document
 ||reddit.lurkmore.com/r/cuckqueancaptions^$document
 ||reddit.lurkmore.com/r/cuckqueancommunity^$document
 ||reddit.lurkmore.com/r/cuckqueanplay^$document
@@ -8773,7 +8760,6 @@
 ||reddit.lurkmore.com/r/cuddlebuddiesindia^$document
 ||reddit.lurkmore.com/r/cuddlemebear^$document
 ||reddit.lurkmore.com/r/cuddle_with_me^$document
-||reddit.lurkmore.com/r/cuffed^$document
 ||reddit.lurkmore.com/r/cuffed^$document
 ||reddit.lurkmore.com/r/cuffs^$document
 ||reddit.lurkmore.com/r/cuffsandcollars^$document
@@ -8970,7 +8956,6 @@
 ||reddit.lurkmore.com/r/cumplaywithme^$document
 ||reddit.lurkmore.com/r/cumportraits^$document
 ||reddit.lurkmore.com/r/cumposure^$document
-||reddit.lurkmore.com/r/cumposure^$document
 ||reddit.lurkmore.com/r/cumpov^$document
 ||reddit.lurkmore.com/r/cumrace^$document
 ||reddit.lurkmore.com/r/cumrade^$document
@@ -9028,7 +9013,6 @@
 ||reddit.lurkmore.com/r/cumtributebbw^$document
 ||reddit.lurkmore.com/r/cumtributecontests^$document
 ||reddit.lurkmore.com/r/cumtributemywife^$document
-||reddit.lurkmore.com/r/cumtributes^$document
 ||reddit.lurkmore.com/r/cumtributes^$document
 ||reddit.lurkmore.com/r/cumtributesforcelebs^$document
 ||reddit.lurkmore.com/r/cumtributes_private^$document
@@ -9641,8 +9625,8 @@
 ||reddit.lurkmore.com/r/daya_knight^$document
 ||reddit.lurkmore.com/r/dayaknight^$document
 ||reddit.lurkmore.com/r/daycareconfessions^$document
-||reddit.lurkmore.com/r/daydreamnsfw^$document
 ||reddit.lurkmore.com/r/daydream_nsfw^$document
+||reddit.lurkmore.com/r/daydreamnsfw^$document
 ||reddit.lurkmore.com/r/daydream_vrporn^$document
 ||reddit.lurkmore.com/r/daysoffuturefap^$document
 ||reddit.lurkmore.com/r/daytimefuntriadofnc^$document
@@ -9743,8 +9727,8 @@
 ||reddit.lurkmore.com/r/deelazee^$document
 ||reddit.lurkmore.com/r/deelishis^$document
 ||reddit.lurkmore.com/r/deemsters^$document
-||reddit.lurkmore.com/r/deepanal^$document
 ||reddit.lurkmore.com/r/deep_anal^$document
+||reddit.lurkmore.com/r/deepanal^$document
 ||reddit.lurkmore.com/r/deepanalabyss^$document
 ||reddit.lurkmore.com/r/deepanalcreampies^$document
 ||reddit.lurkmore.com/r/deepanalfisting^$document
@@ -10059,7 +10043,6 @@
 ||reddit.lurkmore.com/r/dicksincats^$document
 ||reddit.lurkmore.com/r/dick_slap^$document
 ||reddit.lurkmore.com/r/dickslapping^$document
-||reddit.lurkmore.com/r/dickslips^$document
 ||reddit.lurkmore.com/r/dickslips^$document
 ||reddit.lurkmore.com/r/dicksnot^$document
 ||reddit.lurkmore.com/r/dicksofsnapchat^$document
@@ -10419,8 +10402,8 @@
 ||reddit.lurkmore.com/r/doctorwhoporn^$document
 ||reddit.lurkmore.com/r/doctorwhorny^$document
 ||reddit.lurkmore.com/r/documentarium^$document
-||reddit.lurkmore.com/r/documentingreality^$document
 ||reddit.lurkmore.com/r/documenting_reality^$document
+||reddit.lurkmore.com/r/documentingreality^$document
 ||reddit.lurkmore.com/r/dodekus^$document
 ||reddit.lurkmore.com/r/dodgersfanfic^$document
 ||reddit.lurkmore.com/r/dodgersgonewild^$document
@@ -10446,8 +10429,8 @@
 ||reddit.lurkmore.com/r/doggy_style^$document
 ||reddit.lurkmore.com/r/doggystylefucking^$document
 ||reddit.lurkmore.com/r/doggystyle_gifs^$document
-||reddit.lurkmore.com/r/doggystylensfw^$document
 ||reddit.lurkmore.com/r/doggystyle_nsfw^$document
+||reddit.lurkmore.com/r/doggystylensfw^$document
 ||reddit.lurkmore.com/r/doggystyleselfie^$document
 ||reddit.lurkmore.com/r/doggystylevids^$document
 ||reddit.lurkmore.com/r/doggystylexxx^$document
@@ -10771,7 +10754,6 @@
 ||reddit.lurkmore.com/r/drugmemories^$document
 ||reddit.lurkmore.com/r/drugromance^$document
 ||reddit.lurkmore.com/r/drugs^$document
-||reddit.lurkmore.com/r/drugs^$document
 ||reddit.lurkmore.com/r/drugs2^$document
 ||reddit.lurkmore.com/r/drugsarebeautiful^$document
 ||reddit.lurkmore.com/r/drugsgonewild^$document
@@ -10885,8 +10867,8 @@
 ||reddit.lurkmore.com/r/dykesgoneliterate^$document
 ||reddit.lurkmore.com/r/dykesgonewild^$document
 ||reddit.lurkmore.com/r/dylann_vox^$document
-||reddit.lurkmore.com/r/dylanphoenix^$document
 ||reddit.lurkmore.com/r/dylan_phoenix^$document
+||reddit.lurkmore.com/r/dylanphoenix^$document
 ||reddit.lurkmore.com/r/dylanryan^$document
 ||reddit.lurkmore.com/r/dylan_ryder^$document
 ||reddit.lurkmore.com/r/dylanryder^$document
@@ -10963,8 +10945,8 @@
 ||reddit.lurkmore.com/r/ebonygirls^$document
 ||reddit.lurkmore.com/r/ebonygoddesses^$document
 ||reddit.lurkmore.com/r/ebonygonewild^$document
-||reddit.lurkmore.com/r/ebonygw^$document
 ||reddit.lurkmore.com/r/ebony_gw^$document
+||reddit.lurkmore.com/r/ebonygw^$document
 ||reddit.lurkmore.com/r/ebonyhardcore^$document
 ||reddit.lurkmore.com/r/ebonyhomemade^$document
 ||reddit.lurkmore.com/r/ebonyinheels^$document
@@ -11686,8 +11668,8 @@
 ||reddit.lurkmore.com/r/evalin^$document
 ||reddit.lurkmore.com/r/evalong^$document
 ||reddit.lurkmore.com/r/evalopez^$document
-||reddit.lurkmore.com/r/evalovia^$document
 ||reddit.lurkmore.com/r/eva_lovia^$document
+||reddit.lurkmore.com/r/evalovia^$document
 ||reddit.lurkmore.com/r/evaloviavideos^$document
 ||reddit.lurkmore.com/r/evaloviaxxx^$document
 ||reddit.lurkmore.com/r/evamarie_fans^$document
@@ -11986,7 +11968,6 @@
 ||reddit.lurkmore.com/r/faeryfawn^$document
 ||reddit.lurkmore.com/r/fag^$document
 ||reddit.lurkmore.com/r/faggetball^$document
-||reddit.lurkmore.com/r/faggotry^$document
 ||reddit.lurkmore.com/r/faggotry^$document
 ||reddit.lurkmore.com/r/faghappiness^$document
 ||reddit.lurkmore.com/r/fagonewild^$document
@@ -12454,7 +12435,6 @@
 ||reddit.lurkmore.com/r/femcel^$document
 ||reddit.lurkmore.com/r/femdick^$document
 ||reddit.lurkmore.com/r/femdom^$document
-||reddit.lurkmore.com/r/femdom^$document
 ||reddit.lurkmore.com/r/femdomabuse^$document
 ||reddit.lurkmore.com/r/femdomamateur^$document
 ||reddit.lurkmore.com/r/femdom_art^$document
@@ -12735,8 +12715,8 @@
 ||reddit.lurkmore.com/r/firmgayhandjobs^$document
 ||reddit.lurkmore.com/r/firmstrawberries^$document
 ||reddit.lurkmore.com/r/firsapsalot^$document
-||reddit.lurkmore.com/r/firstanal^$document
 ||reddit.lurkmore.com/r/first_anal^$document
+||reddit.lurkmore.com/r/firstanal^$document
 ||reddit.lurkmore.com/r/firstandlasttime^$document
 ||reddit.lurkmore.com/r/firstbondagememories^$document
 ||reddit.lurkmore.com/r/firstcreampieorsex^$document
@@ -13260,11 +13240,10 @@
 ||reddit.lurkmore.com/r/freethenipple^$document
 ||reddit.lurkmore.com/r/freetheporn^$document
 ||reddit.lurkmore.com/r/freethesexypussy^$document
-||reddit.lurkmore.com/r/freeuse^$document
 ||reddit.lurkmore.com/r/free_use^$document
+||reddit.lurkmore.com/r/freeuse^$document
 ||reddit.lurkmore.com/r/freeusecaptions^$document
 ||reddit.lurkmore.com/r/freeusecomics^$document
-||reddit.lurkmore.com/r/freeusefamily^$document
 ||reddit.lurkmore.com/r/freeusefamily^$document
 ||reddit.lurkmore.com/r/freeusefonm^$document
 ||reddit.lurkmore.com/r/freeusefreida^$document
@@ -13407,8 +13386,8 @@
 ||reddit.lurkmore.com/r/ftmspunished^$document
 ||reddit.lurkmore.com/r/ftm_tf^$document
 ||reddit.lurkmore.com/r/ftv^$document
-||reddit.lurkmore.com/r/ftvgirls^$document
 ||reddit.lurkmore.com/r/ftv_girls^$document
+||reddit.lurkmore.com/r/ftvgirls^$document
 ||reddit.lurkmore.com/r/ftvgirlsfree^$document
 ||reddit.lurkmore.com/r/ftvgirls_network^$document
 ||reddit.lurkmore.com/r/ftvrose^$document
@@ -13477,8 +13456,8 @@
 ||reddit.lurkmore.com/r/fuckingfaketits^$document
 ||reddit.lurkmore.com/r/fuckinginthemiddle^$document
 ||reddit.lurkmore.com/r/fucking_machine_nsfw^$document
-||reddit.lurkmore.com/r/fuckingmachines^$document
 ||reddit.lurkmore.com/r/fucking_machines^$document
+||reddit.lurkmore.com/r/fuckingmachines^$document
 ||reddit.lurkmore.com/r/fuckingperfect^$document
 ||reddit.lurkmore.com/r/fuckingredheadgirls^$document
 ||reddit.lurkmore.com/r/fucking_romantic_gifs^$document
@@ -13629,8 +13608,8 @@
 ||reddit.lurkmore.com/r/funnygw^$document
 ||reddit.lurkmore.com/r/funny_hentai^$document
 ||reddit.lurkmore.com/r/funnyinternetvideos^$document
-||reddit.lurkmore.com/r/funnynsfw^$document
 ||reddit.lurkmore.com/r/funny_nsfw^$document
+||reddit.lurkmore.com/r/funnynsfw^$document
 ||reddit.lurkmore.com/r/funnyofaces^$document
 ||reddit.lurkmore.com/r/funnyoffensivememes^$document
 ||reddit.lurkmore.com/r/funny_online_shoppers^$document
@@ -13685,8 +13664,8 @@
 ||reddit.lurkmore.com/r/furrygonewild^$document
 ||reddit.lurkmore.com/r/furrygore^$document
 ||reddit.lurkmore.com/r/furryh8^$document
-||reddit.lurkmore.com/r/furryincest^$document
 ||reddit.lurkmore.com/r/furry_incest^$document
+||reddit.lurkmore.com/r/furryincest^$document
 ||reddit.lurkmore.com/r/furryinflation^$document
 ||reddit.lurkmore.com/r/furry_irl_discord_irl^$document
 ||reddit.lurkmore.com/r/furrykikpals^$document
@@ -13694,8 +13673,8 @@
 ||reddit.lurkmore.com/r/furrypee^$document
 ||reddit.lurkmore.com/r/furry_photomorphs^$document
 ||reddit.lurkmore.com/r/furrypit^$document
-||reddit.lurkmore.com/r/furryporn^$document
 ||reddit.lurkmore.com/r/furry_porn^$document
+||reddit.lurkmore.com/r/furryporn^$document
 ||reddit.lurkmore.com/r/furryporndump^$document
 ||reddit.lurkmore.com/r/furrypornmemes^$document
 ||reddit.lurkmore.com/r/furrypornsubreddit^$document
@@ -13724,8 +13703,8 @@
 ||reddit.lurkmore.com/r/futadomworld^$document
 ||reddit.lurkmore.com/r/futaerotica^$document
 ||reddit.lurkmore.com/r/futafetish^$document
-||reddit.lurkmore.com/r/futahentai^$document
 ||reddit.lurkmore.com/r/futa_hentai^$document
+||reddit.lurkmore.com/r/futahentai^$document
 ||reddit.lurkmore.com/r/futamilf^$document
 ||reddit.lurkmore.com/r/futamilk^$document
 ||reddit.lurkmore.com/r/futanari^$document
@@ -13733,8 +13712,8 @@
 ||reddit.lurkmore.com/r/futanariaccidents^$document
 ||reddit.lurkmore.com/r/futanaribulges^$document
 ||reddit.lurkmore.com/r/futanari_comics^$document
-||reddit.lurkmore.com/r/futanarigames^$document
 ||reddit.lurkmore.com/r/futanari_games^$document
+||reddit.lurkmore.com/r/futanarigames^$document
 ||reddit.lurkmore.com/r/futanarihentai^$document
 ||reddit.lurkmore.com/r/futanari_milking_fans^$document
 ||reddit.lurkmore.com/r/futanaripegging^$document
@@ -14179,7 +14158,6 @@
 ||reddit.lurkmore.com/r/gayplay^$document
 ||reddit.lurkmore.com/r/gaypocxxx^$document
 ||reddit.lurkmore.com/r/gaypokeporn^$document
-||reddit.lurkmore.com/r/gayporn^$document
 ||reddit.lurkmore.com/r/gay_porn^$document
 ||reddit.lurkmore.com/r/gayporn^$document
 ||reddit.lurkmore.com/r/gayporncentral^$document
@@ -14282,8 +14260,8 @@
 ||reddit.lurkmore.com/r/gayvampireporn^$document
 ||reddit.lurkmore.com/r/gayverbal^$document
 ||reddit.lurkmore.com/r/gayvideo^$document
-||reddit.lurkmore.com/r/gayvideos^$document
 ||reddit.lurkmore.com/r/gay_videos^$document
+||reddit.lurkmore.com/r/gayvideos^$document
 ||reddit.lurkmore.com/r/gayvideos_xxx^$document
 ||reddit.lurkmore.com/r/gayvideotwink^$document
 ||reddit.lurkmore.com/r/gayvideo_xyz^$document
@@ -14534,7 +14512,6 @@
 ||reddit.lurkmore.com/r/giasteel^$document
 ||reddit.lurkmore.com/r/gibs^$document
 ||reddit.lurkmore.com/r/gifandsauce^$document
-||reddit.lurkmore.com/r/gifcest^$document
 ||reddit.lurkmore.com/r/gifcest^$document
 ||reddit.lurkmore.com/r/gifcollages^$document
 ||reddit.lurkmore.com/r/giffapper^$document
@@ -14839,8 +14816,8 @@
 ||reddit.lurkmore.com/r/girlsinyogashorts^$document
 ||reddit.lurkmore.com/r/girlsjilling^$document
 ||reddit.lurkmore.com/r/girlskidnapped^$document
-||reddit.lurkmore.com/r/girlskissing^$document
 ||reddit.lurkmore.com/r/girls_kissing^$document
+||reddit.lurkmore.com/r/girlskissing^$document
 ||reddit.lurkmore.com/r/girlslicking^$document
 ||reddit.lurkmore.com/r/girlslickingcum^$document
 ||reddit.lurkmore.com/r/girlslickingpussy^$document
@@ -14944,7 +14921,6 @@
 ||reddit.lurkmore.com/r/girlswhoswallow^$document
 ||reddit.lurkmore.com/r/girlswithamazingeyes^$document
 ||reddit.lurkmore.com/r/girlswithbackpacks^$document
-||reddit.lurkmore.com/r/girlswithbangs^$document
 ||reddit.lurkmore.com/r/girlswithbangs^$document
 ||reddit.lurkmore.com/r/girlswithbangs2^$document
 ||reddit.lurkmore.com/r/girlswithbarefeet^$document
@@ -15076,7 +15052,6 @@
 ||reddit.lurkmore.com/r/gloryholecreampie^$document
 ||reddit.lurkmore.com/r/gloryhole_creampies^$document
 ||reddit.lurkmore.com/r/gloryholefans^$document
-||reddit.lurkmore.com/r/gloryholelocations^$document
 ||reddit.lurkmore.com/r/gloryholelocations^$document
 ||reddit.lurkmore.com/r/gloryholeporn^$document
 ||reddit.lurkmore.com/r/gloryholes^$document
@@ -15253,7 +15228,6 @@
 ||reddit.lurkmore.com/r/gonewhittle^$document
 ||reddit.lurkmore.com/r/gonewidl^$document
 ||reddit.lurkmore.com/r/gonewild^$document
-||reddit.lurkmore.com/r/gonewild^$document
 ||reddit.lurkmore.com/r/gonewild18^$document
 ||reddit.lurkmore.com/r/gonewild19^$document
 ||reddit.lurkmore.com/r/gonewild2000^$document
@@ -15330,7 +15304,6 @@
 ||reddit.lurkmore.com/r/gonewilddownunder^$document
 ||reddit.lurkmore.com/r/gonewildearthquake^$document
 ||reddit.lurkmore.com/r/gonewildebony^$document
-||reddit.lurkmore.com/r/gonewilder^$document
 ||reddit.lurkmore.com/r/gonewilder^$document
 ||reddit.lurkmore.com/r/gonewildest^$document
 ||reddit.lurkmore.com/r/gonewildeurope^$document
@@ -16085,8 +16058,8 @@
 ||reddit.lurkmore.com/r/hallediez^$document
 ||reddit.lurkmore.com/r/hallevon^$document
 ||reddit.lurkmore.com/r/halloffap^$document
-||reddit.lurkmore.com/r/halloweengonewild^$document
 ||reddit.lurkmore.com/r/halloween_gonewild^$document
+||reddit.lurkmore.com/r/halloweengonewild^$document
 ||reddit.lurkmore.com/r/halloweengw^$document
 ||reddit.lurkmore.com/r/halocigs^$document
 ||reddit.lurkmore.com/r/halo_nipples^$document
@@ -16111,11 +16084,11 @@
 ||reddit.lurkmore.com/r/hamtasticfaptastic^$document
 ||reddit.lurkmore.com/r/hanaeatsdicksallday^$document
 ||reddit.lurkmore.com/r/hanagiraldo^$document
-||reddit.lurkmore.com/r/hanamiblossom_^$document
 ||reddit.lurkmore.com/r/hanami_blossom^$document
+||reddit.lurkmore.com/r/hanamiblossom_^$document
 ||reddit.lurkmore.com/r/hanamorgann^$document
-||reddit.lurkmore.com/r/handbra^$document
 ||reddit.lurkmore.com/r/hand_bra^$document
+||reddit.lurkmore.com/r/handbra^$document
 ||reddit.lurkmore.com/r/handbras^$document
 ||reddit.lurkmore.com/r/handcoversmouth^$document
 ||reddit.lurkmore.com/r/handcuffed^$document
@@ -16207,7 +16180,6 @@
 ||reddit.lurkmore.com/r/happychildless^$document
 ||reddit.lurkmore.com/r/happycouplesnsfw^$document
 ||reddit.lurkmore.com/r/happycuckold^$document
-||reddit.lurkmore.com/r/happycuckold^$document
 ||reddit.lurkmore.com/r/happydeepthroat^$document
 ||reddit.lurkmore.com/r/happyembarassedgirls^$document
 ||reddit.lurkmore.com/r/happyembarrassed^$document
@@ -16240,7 +16212,6 @@
 ||reddit.lurkmore.com/r/hardamateurporn^$document
 ||reddit.lurkmore.com/r/hardanal^$document
 ||reddit.lurkmore.com/r/hardandproud^$document
-||reddit.lurkmore.com/r/hardawn^$document
 ||reddit.lurkmore.com/r/hardawn^$document
 ||reddit.lurkmore.com/r/hardawrae^$document
 ||reddit.lurkmore.com/r/hardblush^$document
@@ -16643,8 +16614,8 @@
 ||reddit.lurkmore.com/r/hentaikingdom^$document
 ||reddit.lurkmore.com/r/hentaikittyofficial^$document
 ||reddit.lurkmore.com/r/hentaiknots^$document
-||reddit.lurkmore.com/r/hentailactation^$document
 ||reddit.lurkmore.com/r/hentai_lactation^$document
+||reddit.lurkmore.com/r/hentailactation^$document
 ||reddit.lurkmore.com/r/hentailandia^$document
 ||reddit.lurkmore.com/r/hentailesdom^$document
 ||reddit.lurkmore.com/r/hentailist^$document
@@ -16656,8 +16627,8 @@
 ||reddit.lurkmore.com/r/hentaimasterace^$document
 ||reddit.lurkmore.com/r/hentaimegane^$document
 ||reddit.lurkmore.com/r/hentaimeme^$document
-||reddit.lurkmore.com/r/hentaimemes^$document
 ||reddit.lurkmore.com/r/hentai_memes^$document
+||reddit.lurkmore.com/r/hentaimemes^$document
 ||reddit.lurkmore.com/r/hentai_merge_together^$document
 ||reddit.lurkmore.com/r/hentaimini^$document
 ||reddit.lurkmore.com/r/hentaimovies^$document
@@ -16708,8 +16679,8 @@
 ||reddit.lurkmore.com/r/hentaiuncensored^$document
 ||reddit.lurkmore.com/r/hentaivids^$document
 ||reddit.lurkmore.com/r/hentaivisualarts^$document
-||reddit.lurkmore.com/r/hentaivr^$document
 ||reddit.lurkmore.com/r/hentai_vr^$document
+||reddit.lurkmore.com/r/hentaivr^$document
 ||reddit.lurkmore.com/r/hentaiwallpapers^$document
 ||reddit.lurkmore.com/r/hentai_ward^$document
 ||reddit.lurkmore.com/r/hentaiwesterncomics^$document
@@ -16844,7 +16815,6 @@
 ||reddit.lurkmore.com/r/highresbutts^$document
 ||reddit.lurkmore.com/r/highresgirls^$document
 ||reddit.lurkmore.com/r/highresnsfw^$document
-||reddit.lurkmore.com/r/highresnsfw^$document
 ||reddit.lurkmore.com/r/highresporn^$document
 ||reddit.lurkmore.com/r/highressimps^$document
 ||reddit.lurkmore.com/r/highschool_dxd_hentai^$document
@@ -16926,7 +16896,6 @@
 ||reddit.lurkmore.com/r/hiswickedways^$document
 ||reddit.lurkmore.com/r/hitachi^$document
 ||reddit.lurkmore.com/r/hitachimagicwand^$document
-||reddit.lurkmore.com/r/hitachimagicwand^$document
 ||reddit.lurkmore.com/r/hitatchi^$document
 ||reddit.lurkmore.com/r/hitboxgonewild^$document
 ||reddit.lurkmore.com/r/hitchhikersguidetomy^$document
@@ -16934,8 +16903,8 @@
 ||reddit.lurkmore.com/r/hitlerotica^$document
 ||reddit.lurkmore.com/r/hitlerschildren^$document
 ||reddit.lurkmore.com/r/hitlerwasright^$document
-||reddit.lurkmore.com/r/hitomitanaka^$document
 ||reddit.lurkmore.com/r/hitomi_tanaka^$document
+||reddit.lurkmore.com/r/hitomitanaka^$document
 ||reddit.lurkmore.com/r/hits4tits^$document
 ||reddit.lurkmore.com/r/hiyalll^$document
 ||reddit.lurkmore.com/r/hiyoko^$document
@@ -17203,8 +17172,8 @@
 ||reddit.lurkmore.com/r/horsecockfuta^$document
 ||reddit.lurkmore.com/r/horsecocksmasterrace^$document
 ||reddit.lurkmore.com/r/horseconchat^$document
-||reddit.lurkmore.com/r/horsecore^$document
 ||reddit.lurkmore.com/r/horse_core^$document
+||reddit.lurkmore.com/r/horsecore^$document
 ||reddit.lurkmore.com/r/horsedildo^$document
 ||reddit.lurkmore.com/r/horsedildos4freedom^$document
 ||reddit.lurkmore.com/r/horsefuckers^$document
@@ -17515,7 +17484,6 @@
 ||reddit.lurkmore.com/r/hotwebmsandgifs^$document
 ||reddit.lurkmore.com/r/hotweddingrings^$document
 ||reddit.lurkmore.com/r/hotwife^$document
-||reddit.lurkmore.com/r/hotwife^$document
 ||reddit.lurkmore.com/r/hot_wife91^$document
 ||reddit.lurkmore.com/r/hotwife_adventures^$document
 ||reddit.lurkmore.com/r/hotwifeadventures^$document
@@ -17685,7 +17653,6 @@
 ||reddit.lurkmore.com/r/human_rights_prof^$document
 ||reddit.lurkmore.com/r/humansfuckingtables^$document
 ||reddit.lurkmore.com/r/humansunderground^$document
-||reddit.lurkmore.com/r/humantoilet^$document
 ||reddit.lurkmore.com/r/humantoilet^$document
 ||reddit.lurkmore.com/r/humantoilets^$document
 ||reddit.lurkmore.com/r/humantorch^$document
@@ -18025,7 +17992,6 @@
 ||reddit.lurkmore.com/r/imgoingtohellfor^$document
 ||reddit.lurkmore.com/r/imgoingtohellformemes^$document
 ||reddit.lurkmore.com/r/imgoingtohellforthis^$document
-||reddit.lurkmore.com/r/imgoingtohellforthis^$document
 ||reddit.lurkmore.com/r/imgoingtohellforths^$document
 ||reddit.lurkmore.com/r/imgoingtolimboforthis^$document
 ||reddit.lurkmore.com/r/imgoingtoquarantine^$document
@@ -18111,7 +18077,6 @@
 ||reddit.lurkmore.com/r/incelsmeet^$document
 ||reddit.lurkmore.com/r/incerdoink^$document
 ||reddit.lurkmore.com/r/incest^$document
-||reddit.lurkmore.com/r/incest^$document
 ||reddit.lurkmore.com/r/incest2^$document
 ||reddit.lurkmore.com/r/incest_adultblogs^$document
 ||reddit.lurkmore.com/r/incest_advice^$document
@@ -18124,7 +18089,6 @@
 ||reddit.lurkmore.com/r/incest_comics^$document
 ||reddit.lurkmore.com/r/incestcomics^$document
 ||reddit.lurkmore.com/r/incestcompilations^$document
-||reddit.lurkmore.com/r/incestconfessions^$document
 ||reddit.lurkmore.com/r/incestconfessions^$document
 ||reddit.lurkmore.com/r/incestcreampie^$document
 ||reddit.lurkmore.com/r/incestcreampies^$document
@@ -18139,7 +18103,6 @@
 ||reddit.lurkmore.com/r/incest_flix^$document
 ||reddit.lurkmore.com/r/incestflix^$document
 ||reddit.lurkmore.com/r/incestflixxx^$document
-||reddit.lurkmore.com/r/incestfuck^$document
 ||reddit.lurkmore.com/r/incestfuck^$document
 ||reddit.lurkmore.com/r/incestgeneral^$document
 ||reddit.lurkmore.com/r/incest_gifs^$document
@@ -18167,7 +18130,6 @@
 ||reddit.lurkmore.com/r/incestpregnancy^$document
 ||reddit.lurkmore.com/r/incest_relationships^$document
 ||reddit.lurkmore.com/r/incestroleplay^$document
-||reddit.lurkmore.com/r/incestsexstories^$document
 ||reddit.lurkmore.com/r/incestsexstories^$document
 ||reddit.lurkmore.com/r/incestshare^$document
 ||reddit.lurkmore.com/r/incestsnaps^$document
@@ -18245,12 +18207,12 @@
 ||reddit.lurkmore.com/r/indianlesbians^$document
 ||reddit.lurkmore.com/r/indianlily^$document
 ||reddit.lurkmore.com/r/indianmilf^$document
-||reddit.lurkmore.com/r/indianmilfs^$document
 ||reddit.lurkmore.com/r/indian_milfs^$document
+||reddit.lurkmore.com/r/indianmilfs^$document
 ||reddit.lurkmore.com/r/indianmongering^$document
 ||reddit.lurkmore.com/r/indianmovietrailers^$document
-||reddit.lurkmore.com/r/indiannsfw^$document
 ||reddit.lurkmore.com/r/indian_nsfw^$document
+||reddit.lurkmore.com/r/indiannsfw^$document
 ||reddit.lurkmore.com/r/indiannudemodels^$document
 ||reddit.lurkmore.com/r/indianonoff^$document
 ||reddit.lurkmore.com/r/indianoporn^$document
@@ -18465,8 +18427,8 @@
 ||reddit.lurkmore.com/r/interracial_porno^$document
 ||reddit.lurkmore.com/r/interracial_porn_sex^$document
 ||reddit.lurkmore.com/r/interracial_porn_vids^$document
-||reddit.lurkmore.com/r/interracialsex^$document
 ||reddit.lurkmore.com/r/interracial_sex^$document
+||reddit.lurkmore.com/r/interracialsex^$document
 ||reddit.lurkmore.com/r/interracialsexporn^$document
 ||reddit.lurkmore.com/r/interracialtakeoveruk^$document
 ||reddit.lurkmore.com/r/interracialtube^$document
@@ -19118,8 +19080,8 @@
 ||reddit.lurkmore.com/r/jennymiami^$document
 ||reddit.lurkmore.com/r/jennymillerxxx^$document
 ||reddit.lurkmore.com/r/jennypoussin^$document
-||reddit.lurkmore.com/r/jennyscordamaglia^$document
 ||reddit.lurkmore.com/r/jenny_scordamaglia^$document
+||reddit.lurkmore.com/r/jennyscordamaglia^$document
 ||reddit.lurkmore.com/r/jennyscordamaglia2^$document
 ||reddit.lurkmore.com/r/jennyspage^$document
 ||reddit.lurkmore.com/r/jenny_taborda^$document
@@ -19192,8 +19154,8 @@
 ||reddit.lurkmore.com/r/jessicabutini^$document
 ||reddit.lurkmore.com/r/jessicaceleste^$document
 ||reddit.lurkmore.com/r/jessicaclare^$document
-||reddit.lurkmore.com/r/jessicadavies^$document
 ||reddit.lurkmore.com/r/jessica_davies^$document
+||reddit.lurkmore.com/r/jessicadavies^$document
 ||reddit.lurkmore.com/r/jessicadecarlo^$document
 ||reddit.lurkmore.com/r/jessicadolan^$document
 ||reddit.lurkmore.com/r/jessicadthongs^$document
@@ -19346,7 +19308,6 @@
 ||reddit.lurkmore.com/r/jizzed^$document
 ||reddit.lurkmore.com/r/jizzedtocelebs^$document
 ||reddit.lurkmore.com/r/jizzedtoher^$document
-||reddit.lurkmore.com/r/jizzedtothis^$document
 ||reddit.lurkmore.com/r/jizzedtothis^$document
 ||reddit.lurkmore.com/r/jizzedtothishentai^$document
 ||reddit.lurkmore.com/r/jizzedtothiss^$document
@@ -19897,8 +19858,8 @@
 ||reddit.lurkmore.com/r/kati3kat^$document
 ||reddit.lurkmore.com/r/katiablackk^$document
 ||reddit.lurkmore.com/r/katiaspokoinaya^$document
-||reddit.lurkmore.com/r/katiebanks^$document
 ||reddit.lurkmore.com/r/katie_banks^$document
+||reddit.lurkmore.com/r/katiebanks^$document
 ||reddit.lurkmore.com/r/katiegeexxx^$document
 ||reddit.lurkmore.com/r/katiejordin^$document
 ||reddit.lurkmore.com/r/katiekox^$document
@@ -20087,8 +20048,8 @@
 ||reddit.lurkmore.com/r/kendrasunderlandxxx^$document
 ||reddit.lurkmore.com/r/kennajames^$document
 ||reddit.lurkmore.com/r/kennedie^$document
-||reddit.lurkmore.com/r/kennedyleigh^$document
 ||reddit.lurkmore.com/r/kennedy_leigh^$document
+||reddit.lurkmore.com/r/kennedyleigh^$document
 ||reddit.lurkmore.com/r/kennedypico^$document
 ||reddit.lurkmore.com/r/kentuckycollegegirls^$document
 ||reddit.lurkmore.com/r/kentuckygonewild^$document
@@ -20947,8 +20908,8 @@
 ||reddit.lurkmore.com/r/latinahotwifes^$document
 ||reddit.lurkmore.com/r/latinamilfs^$document
 ||reddit.lurkmore.com/r/latina_nsfw^$document
-||reddit.lurkmore.com/r/latinaporn^$document
 ||reddit.lurkmore.com/r/latina_porn^$document
+||reddit.lurkmore.com/r/latinaporn^$document
 ||reddit.lurkmore.com/r/latina_porn_videos^$document
 ||reddit.lurkmore.com/r/latinas^$document
 ||reddit.lurkmore.com/r/latinas_bikini^$document
@@ -20990,8 +20951,8 @@
 ||reddit.lurkmore.com/r/laurahollyman^$document
 ||reddit.lurkmore.com/r/lauraivette^$document
 ||reddit.lurkmore.com/r/lauralion^$document
-||reddit.lurkmore.com/r/lauralynn_^$document
 ||reddit.lurkmore.com/r/lauralynn^$document
+||reddit.lurkmore.com/r/lauralynn_^$document
 ||reddit.lurkmore.com/r/lauramueller^$document
 ||reddit.lurkmore.com/r/lauramunayofficial^$document
 ||reddit.lurkmore.com/r/lauraorsolya^$document
@@ -21293,8 +21254,8 @@
 ||reddit.lurkmore.com/r/lesbianplot^$document
 ||reddit.lurkmore.com/r/lesbianporn^$document
 ||reddit.lurkmore.com/r/lesbian_porn_b8^$document
-||reddit.lurkmore.com/r/lesbianporno^$document
 ||reddit.lurkmore.com/r/lesbian_porno^$document
+||reddit.lurkmore.com/r/lesbianporno^$document
 ||reddit.lurkmore.com/r/lesbianpornvid^$document
 ||reddit.lurkmore.com/r/lesbian_porn_videos^$document
 ||reddit.lurkmore.com/r/lesbian_pov^$document
@@ -21759,8 +21720,8 @@
 ||reddit.lurkmore.com/r/lisadeleeuw^$document
 ||reddit.lurkmore.com/r/lisapeachy^$document
 ||reddit.lurkmore.com/r/lisasparks^$document
-||reddit.lurkmore.com/r/lisasparxxx^$document
 ||reddit.lurkmore.com/r/lisa_sparxxx^$document
+||reddit.lurkmore.com/r/lisasparxxx^$document
 ||reddit.lurkmore.com/r/lisasquirty^$document
 ||reddit.lurkmore.com/r/lisavannatta^$document
 ||reddit.lurkmore.com/r/liseysweet^$document
@@ -22383,8 +22344,8 @@
 ||reddit.lurkmore.com/r/lyingdown^$document
 ||reddit.lurkmore.com/r/lyingonbellynsfw^$document
 ||reddit.lurkmore.com/r/lyingonstomachbj^$document
-||reddit.lurkmore.com/r/lylastorm^$document
 ||reddit.lurkmore.com/r/lyla_storm^$document
+||reddit.lurkmore.com/r/lylastorm^$document
 ||reddit.lurkmore.com/r/lylithlavey^$document
 ||reddit.lurkmore.com/r/lynaritaa^$document
 ||reddit.lurkmore.com/r/lynnanilsson^$document
@@ -22599,8 +22560,8 @@
 ||reddit.lurkmore.com/r/malegrab^$document
 ||reddit.lurkmore.com/r/maleledrelationships^$document
 ||reddit.lurkmore.com/r/malelesbiansnsfw^$document
-||reddit.lurkmore.com/r/malemasturbation^$document
 ||reddit.lurkmore.com/r/male_masturbation^$document
+||reddit.lurkmore.com/r/malemasturbation^$document
 ||reddit.lurkmore.com/r/malemidlifecrisis^$document
 ||reddit.lurkmore.com/r/malemindcontrol^$document
 ||reddit.lurkmore.com/r/malemodels^$document
@@ -22653,7 +22614,6 @@
 ||reddit.lurkmore.com/r/mallugonewild^$document
 ||reddit.lurkmore.com/r/malluporn^$document
 ||reddit.lurkmore.com/r/mallusgonewild^$document
-||reddit.lurkmore.com/r/malmalloy^$document
 ||reddit.lurkmore.com/r/malmalloy^$document
 ||reddit.lurkmore.com/r/malutrevejoonlyfans^$document
 ||reddit.lurkmore.com/r/mamacurly^$document
@@ -23169,7 +23129,6 @@
 ||reddit.lurkmore.com/r/meganvelez^$document
 ||reddit.lurkmore.com/r/meganventuri^$document
 ||reddit.lurkmore.com/r/megaporn^$document
-||reddit.lurkmore.com/r/megaporn^$document
 ||reddit.lurkmore.com/r/megasexpov^$document
 ||reddit.lurkmore.com/r/megatenyaoi^$document
 ||reddit.lurkmore.com/r/megavr^$document
@@ -23214,8 +23173,8 @@
 ||reddit.lurkmore.com/r/melkormancin2^$document
 ||reddit.lurkmore.com/r/mellaniemonroe^$document
 ||reddit.lurkmore.com/r/mellied^$document
-||reddit.lurkmore.com/r/mellisaclarke^$document
 ||reddit.lurkmore.com/r/mellisa_clarke^$document
+||reddit.lurkmore.com/r/mellisaclarke^$document
 ||reddit.lurkmore.com/r/mellowmen^$document
 ||reddit.lurkmore.com/r/melodyhero^$document
 ||reddit.lurkmore.com/r/melodyjordan^$document
@@ -23615,8 +23574,8 @@
 ||reddit.lurkmore.com/r/milfgalore^$document
 ||reddit.lurkmore.com/r/milf_gif^$document
 ||reddit.lurkmore.com/r/milfgif^$document
-||reddit.lurkmore.com/r/milfgifs^$document
 ||reddit.lurkmore.com/r/milf_gifs^$document
+||reddit.lurkmore.com/r/milfgifs^$document
 ||reddit.lurkmore.com/r/milfgw^$document
 ||reddit.lurkmore.com/r/milfhdvideos^$document
 ||reddit.lurkmore.com/r/milfhentai^$document
@@ -23729,7 +23688,6 @@
 ||reddit.lurkmore.com/r/minasauvage^$document
 ||reddit.lurkmore.com/r/mindboobsofficial^$document
 ||reddit.lurkmore.com/r/mindbreak^$document
-||reddit.lurkmore.com/r/mindbreak^$document
 ||reddit.lurkmore.com/r/mindcontrolporn^$document
 ||reddit.lurkmore.com/r/mindcontrolstories^$document
 ||reddit.lurkmore.com/r/minderaser^$document
@@ -23830,7 +23788,6 @@
 ||reddit.lurkmore.com/r/miss3x^$document
 ||reddit.lurkmore.com/r/missalice_18^$document
 ||reddit.lurkmore.com/r/missalice18^$document
-||reddit.lurkmore.com/r/missalice_18^$document
 ||reddit.lurkmore.com/r/missalice_94^$document
 ||reddit.lurkmore.com/r/missalice94^$document
 ||reddit.lurkmore.com/r/missalicefanclub^$document
@@ -24328,7 +24285,6 @@
 ||reddit.lurkmore.com/r/mothersgonewild^$document
 ||reddit.lurkmore.com/r/mothersmilk^$document
 ||reddit.lurkmore.com/r/mother_son_incest^$document
-||reddit.lurkmore.com/r/mother_son_incest^$document
 ||reddit.lurkmore.com/r/mothnsfw^$document
 ||reddit.lurkmore.com/r/mothorchid^$document
 ||reddit.lurkmore.com/r/mothsfuckingthanoscar^$document
@@ -24440,8 +24396,8 @@
 ||reddit.lurkmore.com/r/msmonroy^$document
 ||reddit.lurkmore.com/r/mspainthentai^$document
 ||reddit.lurkmore.com/r/ms_paintnsfw^$document
-||reddit.lurkmore.com/r/mspalomares^$document
 ||reddit.lurkmore.com/r/ms_palomares^$document
+||reddit.lurkmore.com/r/mspalomares^$document
 ||reddit.lurkmore.com/r/mspandasden^$document
 ||reddit.lurkmore.com/r/mspepccola000^$document
 ||reddit.lurkmore.com/r/mspetite92966^$document
@@ -25030,8 +24986,8 @@
 ||reddit.lurkmore.com/r/natashashy^$document
 ||reddit.lurkmore.com/r/natasha_starr^$document
 ||reddit.lurkmore.com/r/natashateen^$document
-||reddit.lurkmore.com/r/natashathomsen^$document
 ||reddit.lurkmore.com/r/natasha_thomsen^$document
+||reddit.lurkmore.com/r/natashathomsen^$document
 ||reddit.lurkmore.com/r/natashatikhomirova^$document
 ||reddit.lurkmore.com/r/natashaudovenko^$document
 ||reddit.lurkmore.com/r/natashawhite^$document
@@ -25085,8 +25041,8 @@
 ||reddit.lurkmore.com/r/naughtyalbums^$document
 ||reddit.lurkmore.com/r/naughtyallie^$document
 ||reddit.lurkmore.com/r/naughtyalysha^$document
-||reddit.lurkmore.com/r/naughtyamerica^$document
 ||reddit.lurkmore.com/r/naughty_america^$document
+||reddit.lurkmore.com/r/naughtyamerica^$document
 ||reddit.lurkmore.com/r/naughtyamericaar^$document
 ||reddit.lurkmore.com/r/naughtyandamateurs^$document
 ||reddit.lurkmore.com/r/naughty_and_dice^$document
@@ -25335,8 +25291,8 @@
 ||reddit.lurkmore.com/r/newnsfwfunny^$document
 ||reddit.lurkmore.com/r/newnsfwgifs^$document
 ||reddit.lurkmore.com/r/neworleansdominatrix^$document
-||reddit.lurkmore.com/r/newporn^$document
 ||reddit.lurkmore.com/r/new_porn^$document
+||reddit.lurkmore.com/r/newporn^$document
 ||reddit.lurkmore.com/r/new_porn_releases^$document
 ||reddit.lurkmore.com/r/new_real_amateurs^$document
 ||reddit.lurkmore.com/r/newreddits_nsfw^$document
@@ -25430,8 +25386,8 @@
 ||reddit.lurkmore.com/r/nicole^$document
 ||reddit.lurkmore.com/r/nicole75^$document
 ||reddit.lurkmore.com/r/nicoleainston^$document
-||reddit.lurkmore.com/r/nicoleaniston^$document
 ||reddit.lurkmore.com/r/nicole_aniston^$document
+||reddit.lurkmore.com/r/nicoleaniston^$document
 ||reddit.lurkmore.com/r/nicoleaustin^$document
 ||reddit.lurkmore.com/r/nicolebexley^$document
 ||reddit.lurkmore.com/r/nicoleblack^$document
@@ -25755,7 +25711,6 @@
 ||reddit.lurkmore.com/r/norwegianents^$document
 ||reddit.lurkmore.com/r/norwegiansgonewild^$document
 ||reddit.lurkmore.com/r/norwegients^$document
-||reddit.lurkmore.com/r/norwegients^$document
 ||reddit.lurkmore.com/r/noseballs^$document
 ||reddit.lurkmore.com/r/nosecum^$document
 ||reddit.lurkmore.com/r/nosegirlsxxx^$document
@@ -25884,7 +25839,6 @@
 ||reddit.lurkmore.com/r/nsftheimagination^$document
 ||reddit.lurkmore.com/r/nsfw^$document
 ||reddit.lurkmore.com/r/nsfw_^$document
-||reddit.lurkmore.com/r/nsfw^$document
 ||reddit.lurkmore.com/r/nsfw101^$document
 ||reddit.lurkmore.com/r/nsfw_1027sex19^$document
 ||reddit.lurkmore.com/r/nsfw_1323sex19^$document
@@ -25901,8 +25855,8 @@
 ||reddit.lurkmore.com/r/nsfw1poststests^$document
 ||reddit.lurkmore.com/r/nsfw2^$document
 ||reddit.lurkmore.com/r/nsfw_2016^$document
-||reddit.lurkmore.com/r/nsfw2048^$document
 ||reddit.lurkmore.com/r/nsfw_2048^$document
+||reddit.lurkmore.com/r/nsfw2048^$document
 ||reddit.lurkmore.com/r/nsfw_2158sex19^$document
 ||reddit.lurkmore.com/r/nsfw_2192sex19^$document
 ||reddit.lurkmore.com/r/nsfw_2570sex19^$document
@@ -25946,8 +25900,8 @@
 ||reddit.lurkmore.com/r/nsfw_4505sex19^$document
 ||reddit.lurkmore.com/r/nsfw_4626sex19^$document
 ||reddit.lurkmore.com/r/nsfw_4953sex19^$document
-||reddit.lurkmore.com/r/nsfw4k^$document
 ||reddit.lurkmore.com/r/nsfw_4k^$document
+||reddit.lurkmore.com/r/nsfw4k^$document
 ||reddit.lurkmore.com/r/nsfw4mobile^$document
 ||reddit.lurkmore.com/r/nsfw4u^$document
 ||reddit.lurkmore.com/r/nsfw_4_women^$document
@@ -26086,8 +26040,8 @@
 ||reddit.lurkmore.com/r/nsfw_amateurteen^$document
 ||reddit.lurkmore.com/r/nsfw_amateurteensxxx^$document
 ||reddit.lurkmore.com/r/nsfw_amateur____xxx^$document
-||reddit.lurkmore.com/r/nsfwamateur_xxx^$document
 ||reddit.lurkmore.com/r/nsfw_amateurxxx^$document
+||reddit.lurkmore.com/r/nsfwamateur_xxx^$document
 ||reddit.lurkmore.com/r/nsfw_analharcore^$document
 ||reddit.lurkmore.com/r/nsfwanalporn^$document
 ||reddit.lurkmore.com/r/nsfw_analqueens^$document
@@ -26110,19 +26064,19 @@
 ||reddit.lurkmore.com/r/nsfwartistshowcase^$document
 ||reddit.lurkmore.com/r/nsfwartwork^$document
 ||reddit.lurkmore.com/r/nsfw_ascii^$document
-||reddit.lurkmore.com/r/nsfwasian^$document
 ||reddit.lurkmore.com/r/nsfw_asian^$document
+||reddit.lurkmore.com/r/nsfwasian^$document
 ||reddit.lurkmore.com/r/nsfw_asian_muses^$document
 ||reddit.lurkmore.com/r/nsfw_asianteens^$document
 ||reddit.lurkmore.com/r/nsfwasiantraps^$document
 ||reddit.lurkmore.com/r/nsfwaskreddit^$document
 ||reddit.lurkmore.com/r/nsfwasmr^$document
-||reddit.lurkmore.com/r/nsfwass^$document
 ||reddit.lurkmore.com/r/nsfw_ass^$document
+||reddit.lurkmore.com/r/nsfwass^$document
 ||reddit.lurkmore.com/r/nsfw_assandpussyteen^$document
 ||reddit.lurkmore.com/r/nsfw_ass_gifs^$document
-||reddit.lurkmore.com/r/nsfwasshole^$document
 ||reddit.lurkmore.com/r/nsfw_asshole^$document
+||reddit.lurkmore.com/r/nsfwasshole^$document
 ||reddit.lurkmore.com/r/nsfw_assporn^$document
 ||reddit.lurkmore.com/r/nsfw_ass_teen18^$document
 ||reddit.lurkmore.com/r/nsfw_at_work^$document
@@ -26218,9 +26172,9 @@
 ||reddit.lurkmore.com/r/nsfwcelebgifs^$document
 ||reddit.lurkmore.com/r/nsfw_celebrity^$document
 ||reddit.lurkmore.com/r/nsfw_celebrityfakes^$document
+||reddit.lurkmore.com/r/nsfw__celebs^$document
 ||reddit.lurkmore.com/r/nsfw_celebs^$document
 ||reddit.lurkmore.com/r/nsfwcelebs^$document
-||reddit.lurkmore.com/r/nsfw__celebs^$document
 ||reddit.lurkmore.com/r/nsfwchallenges^$document
 ||reddit.lurkmore.com/r/nsfwchannelsurfing^$document
 ||reddit.lurkmore.com/r/nsfwchat^$document
@@ -26234,8 +26188,8 @@
 ||reddit.lurkmore.com/r/nsfwcirclejerk^$document
 ||reddit.lurkmore.com/r/nsfwcirclejerking^$document
 ||reddit.lurkmore.com/r/nsfwcloseups^$document
-||reddit.lurkmore.com/r/nsfwclothing^$document
 ||reddit.lurkmore.com/r/nsfw_clothing^$document
+||reddit.lurkmore.com/r/nsfwclothing^$document
 ||reddit.lurkmore.com/r/nsfwclubs^$document
 ||reddit.lurkmore.com/r/nsfwcollages^$document
 ||reddit.lurkmore.com/r/nsfwcollection^$document
@@ -26247,8 +26201,8 @@
 ||reddit.lurkmore.com/r/nsfwcoloring^$document
 ||reddit.lurkmore.com/r/nsfwcolorization^$document
 ||reddit.lurkmore.com/r/nsfwcomicart^$document
-||reddit.lurkmore.com/r/nsfwcomics^$document
 ||reddit.lurkmore.com/r/nsfw_comics^$document
+||reddit.lurkmore.com/r/nsfwcomics^$document
 ||reddit.lurkmore.com/r/nsfwcomix^$document
 ||reddit.lurkmore.com/r/nsfwcomments^$document
 ||reddit.lurkmore.com/r/nsfw_commissions^$document
@@ -26275,8 +26229,8 @@
 ||reddit.lurkmore.com/r/nsfwcute^$document
 ||reddit.lurkmore.com/r/nsfw_cutebustyblonde^$document
 ||reddit.lurkmore.com/r/nsfw_cutegirlsporn^$document
-||reddit.lurkmore.com/r/nsfwcyoa^$document
 ||reddit.lurkmore.com/r/nsfw_cyoa^$document
+||reddit.lurkmore.com/r/nsfwcyoa^$document
 ||reddit.lurkmore.com/r/nsfwcyoa_request^$document
 ||reddit.lurkmore.com/r/nsfwcyoarp^$document
 ||reddit.lurkmore.com/r/nsfw_czech_girls^$document
@@ -26316,8 +26270,8 @@
 ||reddit.lurkmore.com/r/nsfw_exgirlfriends_hd^$document
 ||reddit.lurkmore.com/r/nsfw_experiment^$document
 ||reddit.lurkmore.com/r/nsfweyebrows^$document
-||reddit.lurkmore.com/r/nsfweyes^$document
 ||reddit.lurkmore.com/r/nsfw_eyes^$document
+||reddit.lurkmore.com/r/nsfweyes^$document
 ||reddit.lurkmore.com/r/nsfw_facebook^$document
 ||reddit.lurkmore.com/r/nsfwfaceswaps^$document
 ||reddit.lurkmore.com/r/nsfwfacts^$document
@@ -26373,8 +26327,8 @@
 ||reddit.lurkmore.com/r/nsfwgaming^$document
 ||reddit.lurkmore.com/r/nsfw_gangbang_xvideos^$document
 ||reddit.lurkmore.com/r/nsfw_gardevoir^$document
-||reddit.lurkmore.com/r/nsfwgay^$document
 ||reddit.lurkmore.com/r/nsfw_gay^$document
+||reddit.lurkmore.com/r/nsfwgay^$document
 ||reddit.lurkmore.com/r/nsfw_gay_porn^$document
 ||reddit.lurkmore.com/r/nsfw_gays^$document
 ||reddit.lurkmore.com/r/nsfw_gayworldxxx^$document
@@ -26382,13 +26336,13 @@
 ||reddit.lurkmore.com/r/nsfw_gay_xxx^$document
 ||reddit.lurkmore.com/r/nsfw_geeks^$document
 ||reddit.lurkmore.com/r/nsfwgeographic^$document
-||reddit.lurkmore.com/r/nsfwgfy^$document
 ||reddit.lurkmore.com/r/nsfw_gfy^$document
+||reddit.lurkmore.com/r/nsfwgfy^$document
 ||reddit.lurkmore.com/r/nsfwgfycat^$document
 ||reddit.lurkmore.com/r/nsfw_gfys^$document
 ||reddit.lurkmore.com/r/nsfwgfys^$document
-||reddit.lurkmore.com/r/nsfwgif^$document
 ||reddit.lurkmore.com/r/nsfw_gif^$document
+||reddit.lurkmore.com/r/nsfwgif^$document
 ||reddit.lurkmore.com/r/nsfw_gif11^$document
 ||reddit.lurkmore.com/r/nsfw_gif_audio^$document
 ||reddit.lurkmore.com/r/nsfw_gifcum^$document
@@ -26401,8 +26355,8 @@
 ||reddit.lurkmore.com/r/nsfwgifs^$document
 ||reddit.lurkmore.com/r/nsfwgifs69^$document
 ||reddit.lurkmore.com/r/nsfw_gifs_ass^$document
-||reddit.lurkmore.com/r/nsfwgif_sauce^$document
 ||reddit.lurkmore.com/r/nsfw_gif_sauce^$document
+||reddit.lurkmore.com/r/nsfwgif_sauce^$document
 ||reddit.lurkmore.com/r/nsfwgifsdescribed^$document
 ||reddit.lurkmore.com/r/nsfw_gif_sets^$document
 ||reddit.lurkmore.com/r/nsfwgifsnvids^$document
@@ -26413,10 +26367,10 @@
 ||reddit.lurkmore.com/r/nsfw_gifs_pics_n_vids^$document
 ||reddit.lurkmore.com/r/nsfw_gifss^$document
 ||reddit.lurkmore.com/r/nsfw_gifs_videos^$document
-||reddit.lurkmore.com/r/nsfwgifwithsource^$document
 ||reddit.lurkmore.com/r/nsfw_gif_with_source^$document
-||reddit.lurkmore.com/r/nsfw_gifxxx^$document
+||reddit.lurkmore.com/r/nsfwgifwithsource^$document
 ||reddit.lurkmore.com/r/nsfw_gif_xxx^$document
+||reddit.lurkmore.com/r/nsfw_gifxxx^$document
 ||reddit.lurkmore.com/r/nsfw_gifyo^$document
 ||reddit.lurkmore.com/r/nsfwgiggity^$document
 ||reddit.lurkmore.com/r/nsfw_gilliananderson^$document
@@ -26453,8 +26407,8 @@
 ||reddit.lurkmore.com/r/nsfw_harcoreteen^$document
 ||reddit.lurkmore.com/r/nsfw_hardbodies^$document
 ||reddit.lurkmore.com/r/nsfw_hardbody_videos^$document
-||reddit.lurkmore.com/r/nsfwhardcore^$document
 ||reddit.lurkmore.com/r/nsfw_hardcore^$document
+||reddit.lurkmore.com/r/nsfwhardcore^$document
 ||reddit.lurkmore.com/r/nsfwhardcoregames^$document
 ||reddit.lurkmore.com/r/nsfw_hardcore_gifs^$document
 ||reddit.lurkmore.com/r/nsfwhardcore_porn^$document
@@ -26483,8 +26437,8 @@
 ||reddit.lurkmore.com/r/nsfw_hornyamateurland^$document
 ||reddit.lurkmore.com/r/nsfw_hornyamateurporn^$document
 ||reddit.lurkmore.com/r/nsfw_horny___amateurs^$document
-||reddit.lurkmore.com/r/nsfwhorny_amateurs^$document
 ||reddit.lurkmore.com/r/nsfw_horny_amateurs^$document
+||reddit.lurkmore.com/r/nsfwhorny_amateurs^$document
 ||reddit.lurkmore.com/r/nsfw_horny_asses^$document
 ||reddit.lurkmore.com/r/nsfw_horny___babes^$document
 ||reddit.lurkmore.com/r/nsfw_horny_babes^$document
@@ -26516,8 +26470,8 @@
 ||reddit.lurkmore.com/r/nsfw_hotxxxpics^$document
 ||reddit.lurkmore.com/r/nsfw_howto^$document
 ||reddit.lurkmore.com/r/nsfwhq^$document
-||reddit.lurkmore.com/r/nsfwhtml5^$document
 ||reddit.lurkmore.com/r/nsfw_html5^$document
+||reddit.lurkmore.com/r/nsfwhtml5^$document
 ||reddit.lurkmore.com/r/nsfwhub^$document
 ||reddit.lurkmore.com/r/nsfwhumor^$document
 ||reddit.lurkmore.com/r/nsfw_hungary^$document
@@ -26558,8 +26512,8 @@
 ||reddit.lurkmore.com/r/nsfwkinketc^$document
 ||reddit.lurkmore.com/r/nsfw_kissing^$document
 ||reddit.lurkmore.com/r/nsfwkitchen^$document
-||reddit.lurkmore.com/r/nsfwkorea^$document
 ||reddit.lurkmore.com/r/nsfw_korea^$document
+||reddit.lurkmore.com/r/nsfwkorea^$document
 ||reddit.lurkmore.com/r/nsfw_koreangirls^$document
 ||reddit.lurkmore.com/r/nsfw_lacqueristas^$document
 ||reddit.lurkmore.com/r/nsfw_ladyboners^$document
@@ -26572,9 +26526,9 @@
 ||reddit.lurkmore.com/r/nsfwlaughs^$document
 ||reddit.lurkmore.com/r/nsfw_legends^$document
 ||reddit.lurkmore.com/r/nsfwleotards^$document
+||reddit.lurkmore.com/r/nsfw_lesbian^$document
 ||reddit.lurkmore.com/r/nsfw_lesbian_^$document
 ||reddit.lurkmore.com/r/nsfwlesbian^$document
-||reddit.lurkmore.com/r/nsfw_lesbian^$document
 ||reddit.lurkmore.com/r/nsfw_lesbian_bsas^$document
 ||reddit.lurkmore.com/r/nsfw_lesbian_lust^$document
 ||reddit.lurkmore.com/r/nsfw_lesbian_porn^$document
@@ -26668,8 +26622,8 @@
 ||reddit.lurkmore.com/r/nsfw_nospam^$document
 ||reddit.lurkmore.com/r/nsfw_nsfw_nsfw^$document
 ||reddit.lurkmore.com/r/nsfw_nyc^$document
-||reddit.lurkmore.com/r/nsfwoc^$document
 ||reddit.lurkmore.com/r/nsfw_oc^$document
+||reddit.lurkmore.com/r/nsfwoc^$document
 ||reddit.lurkmore.com/r/nsfwoculus^$document
 ||reddit.lurkmore.com/r/nsfwoddlysatisfying^$document
 ||reddit.lurkmore.com/r/nsfw_odd_porn^$document
@@ -26729,8 +26683,8 @@
 ||reddit.lurkmore.com/r/nsfw_pics_porn^$document
 ||reddit.lurkmore.com/r/nsfw_picsxxxparty^$document
 ||reddit.lurkmore.com/r/nsfw_picsxxxsexy^$document
-||reddit.lurkmore.com/r/nsfwpictures^$document
 ||reddit.lurkmore.com/r/nsfw_pictures^$document
+||reddit.lurkmore.com/r/nsfwpictures^$document
 ||reddit.lurkmore.com/r/nsfwpicutreblogs^$document
 ||reddit.lurkmore.com/r/nsfwpiercings^$document
 ||reddit.lurkmore.com/r/nsfw_playtime^$document
@@ -26809,8 +26763,8 @@
 ||reddit.lurkmore.com/r/nsfw_random^$document
 ||reddit.lurkmore.com/r/nsfwrandom^$document
 ||reddit.lurkmore.com/r/nsfwrasprave^$document
-||reddit.lurkmore.com/r/nsfw_reactiongifs^$document
 ||reddit.lurkmore.com/r/nsfw_reaction_gifs^$document
+||reddit.lurkmore.com/r/nsfw_reactiongifs^$document
 ||reddit.lurkmore.com/r/nsfwreactiongifs^$document
 ||reddit.lurkmore.com/r/nsfwreactions^$document
 ||reddit.lurkmore.com/r/nsfw_realgirlfriends^$document
@@ -26827,7 +26781,6 @@
 ||reddit.lurkmore.com/r/nsfw_ridesharing^$document
 ||reddit.lurkmore.com/r/nsfw_riding^$document
 ||reddit.lurkmore.com/r/nsfwriding^$document
-||reddit.lurkmore.com/r/nsfwriding^$document
 ||reddit.lurkmore.com/r/nsfw_rising^$document
 ||reddit.lurkmore.com/r/nsfw_rosaxxxy^$document
 ||reddit.lurkmore.com/r/nsfwroulette^$document
@@ -26835,8 +26788,8 @@
 ||reddit.lurkmore.com/r/nsfw_russia^$document
 ||reddit.lurkmore.com/r/nsfwrussia^$document
 ||reddit.lurkmore.com/r/nsfwrwh^$document
-||reddit.lurkmore.com/r/nsfwsauce^$document
 ||reddit.lurkmore.com/r/nsfw_sauce^$document
+||reddit.lurkmore.com/r/nsfwsauce^$document
 ||reddit.lurkmore.com/r/nsfwsavessexyfunshow^$document
 ||reddit.lurkmore.com/r/nsfw_saxmovi^$document
 ||reddit.lurkmore.com/r/nsfwscarves^$document
@@ -26904,8 +26857,8 @@
 ||reddit.lurkmore.com/r/nsfwshaving^$document
 ||reddit.lurkmore.com/r/nsfwshemale^$document
 ||reddit.lurkmore.com/r/nsfw_shemalebabe^$document
-||reddit.lurkmore.com/r/nsfwshemales^$document
 ||reddit.lurkmore.com/r/nsfw_shemales^$document
+||reddit.lurkmore.com/r/nsfwshemales^$document
 ||reddit.lurkmore.com/r/nsfwshitposts^$document
 ||reddit.lurkmore.com/r/nsfwshoes^$document
 ||reddit.lurkmore.com/r/nsfwshops^$document
@@ -27004,8 +26957,8 @@
 ||reddit.lurkmore.com/r/nsfwtodayilearned^$document
 ||reddit.lurkmore.com/r/nsfw_toned^$document
 ||reddit.lurkmore.com/r/nsfw_tonguering^$document
-||reddit.lurkmore.com/r/nsfwtop^$document
 ||reddit.lurkmore.com/r/nsfw_top^$document
+||reddit.lurkmore.com/r/nsfwtop^$document
 ||reddit.lurkmore.com/r/nsfwtorrentpreview^$document
 ||reddit.lurkmore.com/r/nsfwtotalwar^$document
 ||reddit.lurkmore.com/r/nsfwtoys^$document
@@ -27018,8 +26971,8 @@
 ||reddit.lurkmore.com/r/nsfw_tributes^$document
 ||reddit.lurkmore.com/r/nsfwtriples^$document
 ||reddit.lurkmore.com/r/nsfw_tryonhaul^$document
-||reddit.lurkmore.com/r/nsfwtumblr^$document
 ||reddit.lurkmore.com/r/nsfw_tumblr^$document
+||reddit.lurkmore.com/r/nsfwtumblr^$document
 ||reddit.lurkmore.com/r/nsfwtumblrblogs^$document
 ||reddit.lurkmore.com/r/nsfwtumblrgifs^$document
 ||reddit.lurkmore.com/r/nsfwtv^$document
@@ -27293,8 +27246,8 @@
 ||reddit.lurkmore.com/r/nudesandsnap^$document
 ||reddit.lurkmore.com/r/nudesapoppin^$document
 ||reddit.lurkmore.com/r/nudescenes^$document
-||reddit.lurkmore.com/r/nudeselfie^$document
 ||reddit.lurkmore.com/r/nude_selfie^$document
+||reddit.lurkmore.com/r/nudeselfie^$document
 ||reddit.lurkmore.com/r/nudeselfies^$document
 ||reddit.lurkmore.com/r/nudeselfiess^$document
 ||reddit.lurkmore.com/r/nudeselfiez^$document
@@ -27450,7 +27403,6 @@
 ||reddit.lurkmore.com/r/objectifiedwomen^$document
 ||reddit.lurkmore.com/r/objectnsfw^$document
 ||reddit.lurkmore.com/r/objects^$document
-||reddit.lurkmore.com/r/objects^$document
 ||reddit.lurkmore.com/r/objects4all^$document
 ||reddit.lurkmore.com/r/objectsgw^$document
 ||reddit.lurkmore.com/r/objectum^$document
@@ -27580,8 +27532,8 @@
 ||reddit.lurkmore.com/r/oiledupshemale^$document
 ||reddit.lurkmore.com/r/oiloiledporn^$document
 ||reddit.lurkmore.com/r/oilpen^$document
-||reddit.lurkmore.com/r/oilporn^$document
 ||reddit.lurkmore.com/r/oil_porn^$document
+||reddit.lurkmore.com/r/oilporn^$document
 ||reddit.lurkmore.com/r/oil_vaporizer^$document
 ||reddit.lurkmore.com/r/oilvaporizers^$document
 ||reddit.lurkmore.com/r/oily^$document
@@ -27839,8 +27791,8 @@
 ||reddit.lurkmore.com/r/onlykyoko^$document
 ||reddit.lurkmore.com/r/onlyladyboys^$document
 ||reddit.lurkmore.com/r/onlymajora^$document
-||reddit.lurkmore.com/r/onlymilfs^$document
 ||reddit.lurkmore.com/r/only_milfs^$document
+||reddit.lurkmore.com/r/onlymilfs^$document
 ||reddit.lurkmore.com/r/onlymoms^$document
 ||reddit.lurkmore.com/r/onlynudechicks^$document
 ||reddit.lurkmore.com/r/onlyonenaked^$document
@@ -27859,7 +27811,6 @@
 ||reddit.lurkmore.com/r/onlytop_onlybottom^$document
 ||reddit.lurkmore.com/r/onlyyaelin^$document
 ||reddit.lurkmore.com/r/onlyyuri^$document
-||reddit.lurkmore.com/r/onmww^$document
 ||reddit.lurkmore.com/r/onmww^$document
 ||reddit.lurkmore.com/r/onoff^$document
 ||reddit.lurkmore.com/r/onoff2^$document
@@ -28463,7 +28414,6 @@
 ||reddit.lurkmore.com/r/paulashy^$document
 ||reddit.lurkmore.com/r/paulblartbenefits^$document
 ||reddit.lurkmore.com/r/pauliebleeker11^$document
-||reddit.lurkmore.com/r/pauliebleeker11^$document
 ||reddit.lurkmore.com/r/paulinamikolajczak^$document
 ||reddit.lurkmore.com/r/pavlovswhore^$document
 ||reddit.lurkmore.com/r/pawg^$document
@@ -29009,8 +28959,8 @@
 ||reddit.lurkmore.com/r/piercedhotties^$document
 ||reddit.lurkmore.com/r/piercednipple^$document
 ||reddit.lurkmore.com/r/pierced_nipple_men^$document
-||reddit.lurkmore.com/r/piercednipples^$document
 ||reddit.lurkmore.com/r/pierced_nipples^$document
+||reddit.lurkmore.com/r/piercednipples^$document
 ||reddit.lurkmore.com/r/piercednsfw^$document
 ||reddit.lurkmore.com/r/piercedpokies^$document
 ||reddit.lurkmore.com/r/piercedpussy^$document
@@ -29286,8 +29236,8 @@
 ||reddit.lurkmore.com/r/plumperpalace^$document
 ||reddit.lurkmore.com/r/plumpers^$document
 ||reddit.lurkmore.com/r/plumpy^$document
-||reddit.lurkmore.com/r/plumsuicide^$document
 ||reddit.lurkmore.com/r/plum_suicide^$document
+||reddit.lurkmore.com/r/plumsuicide^$document
 ||reddit.lurkmore.com/r/plunder_n_booty^$document
 ||reddit.lurkmore.com/r/plur4plur^$document
 ||reddit.lurkmore.com/r/plus3^$document
@@ -29611,8 +29561,8 @@
 ||reddit.lurkmore.com/r/porndetective^$document
 ||reddit.lurkmore.com/r/porndex^$document
 ||reddit.lurkmore.com/r/porndirectorpodcast^$document
-||reddit.lurkmore.com/r/porndiscussion^$document
 ||reddit.lurkmore.com/r/porn_discussion^$document
+||reddit.lurkmore.com/r/porndiscussion^$document
 ||reddit.lurkmore.com/r/porndoc^$document
 ||reddit.lurkmore.com/r/porndogs^$document
 ||reddit.lurkmore.com/r/porndoll^$document
@@ -29633,8 +29583,8 @@
 ||reddit.lurkmore.com/r/porneyebrows^$document
 ||reddit.lurkmore.com/r/pornezium^$document
 ||reddit.lurkmore.com/r/pornfakes^$document
-||reddit.lurkmore.com/r/pornfans^$document
 ||reddit.lurkmore.com/r/porn_fans^$document
+||reddit.lurkmore.com/r/pornfans^$document
 ||reddit.lurkmore.com/r/pornfansvideo^$document
 ||reddit.lurkmore.com/r/pornfantasy^$document
 ||reddit.lurkmore.com/r/pornfavsubb^$document
@@ -29698,8 +29648,8 @@
 ||reddit.lurkmore.com/r/pornhd365^$document
 ||reddit.lurkmore.com/r/pornhdo^$document
 ||reddit.lurkmore.com/r/pornheat^$document
-||reddit.lurkmore.com/r/pornheaven^$document
 ||reddit.lurkmore.com/r/porn_heaven^$document
+||reddit.lurkmore.com/r/pornheaven^$document
 ||reddit.lurkmore.com/r/pornheels^$document
 ||reddit.lurkmore.com/r/pornhighlights^$document
 ||reddit.lurkmore.com/r/pornhoarders^$document
@@ -29713,8 +29663,8 @@
 ||reddit.lurkmore.com/r/porn_house^$document
 ||reddit.lurkmore.com/r/porn_hq^$document
 ||reddit.lurkmore.com/r/pornhq^$document
-||reddit.lurkmore.com/r/pornhub^$document
 ||reddit.lurkmore.com/r/porn_hub^$document
+||reddit.lurkmore.com/r/pornhub^$document
 ||reddit.lurkmore.com/r/pornhubads^$document
 ||reddit.lurkmore.com/r/pornhubamateurmodels^$document
 ||reddit.lurkmore.com/r/pornhubamateurs^$document
@@ -29810,8 +29760,8 @@
 ||reddit.lurkmore.com/r/pornmoney^$document
 ||reddit.lurkmore.com/r/pornmovies^$document
 ||reddit.lurkmore.com/r/pornmusicvideo^$document
-||reddit.lurkmore.com/r/pornmusicvideos^$document
 ||reddit.lurkmore.com/r/porn_music_videos^$document
+||reddit.lurkmore.com/r/pornmusicvideos^$document
 ||reddit.lurkmore.com/r/pornmusicvids^$document
 ||reddit.lurkmore.com/r/pornnetwork^$document
 ||reddit.lurkmore.com/r/porn_news^$document
@@ -29969,8 +29919,8 @@
 ||reddit.lurkmore.com/r/pornsluts^$document
 ||reddit.lurkmore.com/r/pornsnotdead^$document
 ||reddit.lurkmore.com/r/pornsorce^$document
-||reddit.lurkmore.com/r/pornsource^$document
 ||reddit.lurkmore.com/r/porn_source^$document
+||reddit.lurkmore.com/r/pornsource^$document
 ||reddit.lurkmore.com/r/pornsourcehq^$document
 ||reddit.lurkmore.com/r/porn_sources^$document
 ||reddit.lurkmore.com/r/pornsources^$document
@@ -30071,8 +30021,8 @@
 ||reddit.lurkmore.com/r/porntrailers^$document
 ||reddit.lurkmore.com/r/porn_trees^$document
 ||reddit.lurkmore.com/r/porntubemovies^$document
-||reddit.lurkmore.com/r/porntubes^$document
 ||reddit.lurkmore.com/r/porn_tubes^$document
+||reddit.lurkmore.com/r/porntubes^$document
 ||reddit.lurkmore.com/r/porntumblr^$document
 ||reddit.lurkmore.com/r/porntunnel^$document
 ||reddit.lurkmore.com/r/porntv^$document
@@ -30101,8 +30051,8 @@
 ||reddit.lurkmore.com/r/pornvidshd^$document
 ||reddit.lurkmore.com/r/pornvifs^$document
 ||reddit.lurkmore.com/r/pornvintageclassic^$document
-||reddit.lurkmore.com/r/pornvr^$document
 ||reddit.lurkmore.com/r/porn_vr^$document
+||reddit.lurkmore.com/r/pornvr^$document
 ||reddit.lurkmore.com/r/pornvrmarket^$document
 ||reddit.lurkmore.com/r/pornvstar^$document
 ||reddit.lurkmore.com/r/pornvswrestling^$document
@@ -30197,8 +30147,8 @@
 ||reddit.lurkmore.com/r/pov^$document
 ||reddit.lurkmore.com/r/povanal^$document
 ||reddit.lurkmore.com/r/povblowjob^$document
-||reddit.lurkmore.com/r/povblowjobs^$document
 ||reddit.lurkmore.com/r/pov_blowjobs^$document
+||reddit.lurkmore.com/r/povblowjobs^$document
 ||reddit.lurkmore.com/r/povboobs^$document
 ||reddit.lurkmore.com/r/pov_cowgirl^$document
 ||reddit.lurkmore.com/r/povcringe^$document
@@ -30268,11 +30218,10 @@
 ||reddit.lurkmore.com/r/preggohentai^$document
 ||reddit.lurkmore.com/r/preggopantypusher^$document
 ||reddit.lurkmore.com/r/preggoporn^$document
-||reddit.lurkmore.com/r/preggoporn^$document
 ||reddit.lurkmore.com/r/preggopornstars^$document
 ||reddit.lurkmore.com/r/preggo_shops^$document
-||reddit.lurkmore.com/r/preggoteens^$document
 ||reddit.lurkmore.com/r/preggo_teens^$document
+||reddit.lurkmore.com/r/preggoteens^$document
 ||reddit.lurkmore.com/r/preggo_women_nude^$document
 ||reddit.lurkmore.com/r/pregnancyporn^$document
 ||reddit.lurkmore.com/r/pregnancyrisk^$document
@@ -30623,12 +30572,11 @@
 ||reddit.lurkmore.com/r/publicplug^$document
 ||reddit.lurkmore.com/r/publicpornvideos^$document
 ||reddit.lurkmore.com/r/publicprivatespace^$document
-||reddit.lurkmore.com/r/publicsex^$document
 ||reddit.lurkmore.com/r/public_sex^$document
+||reddit.lurkmore.com/r/publicsex^$document
 ||reddit.lurkmore.com/r/publicsexexpo^$document
 ||reddit.lurkmore.com/r/publicsexporn^$document
 ||reddit.lurkmore.com/r/publicsexvideos^$document
-||reddit.lurkmore.com/r/publicslutwear^$document
 ||reddit.lurkmore.com/r/publicslutwear^$document
 ||reddit.lurkmore.com/r/publicstripping^$document
 ||reddit.lurkmore.com/r/publictgirl^$document
@@ -30700,8 +30648,8 @@
 ||reddit.lurkmore.com/r/pup_play^$document
 ||reddit.lurkmore.com/r/pupplay^$document
 ||reddit.lurkmore.com/r/puppyfaces^$document
-||reddit.lurkmore.com/r/puppyplay^$document
 ||reddit.lurkmore.com/r/puppy_play^$document
+||reddit.lurkmore.com/r/puppyplay^$document
 ||reddit.lurkmore.com/r/pupsicle_stick^$document
 ||reddit.lurkmore.com/r/pupsnowstories^$document
 ||reddit.lurkmore.com/r/pure18^$document
@@ -30764,8 +30712,8 @@
 ||reddit.lurkmore.com/r/pussydick^$document
 ||reddit.lurkmore.com/r/pussydoctor_^$document
 ||reddit.lurkmore.com/r/pussydotorg^$document
-||reddit.lurkmore.com/r/pussyeating^$document
 ||reddit.lurkmore.com/r/pussy_eating^$document
+||reddit.lurkmore.com/r/pussyeating^$document
 ||reddit.lurkmore.com/r/pussyenvy^$document
 ||reddit.lurkmore.com/r/pussyfart^$document
 ||reddit.lurkmore.com/r/pussyflashing^$document
@@ -30788,8 +30736,8 @@
 ||reddit.lurkmore.com/r/pussylegion^$document
 ||reddit.lurkmore.com/r/pussylicking^$document
 ||reddit.lurkmore.com/r/pussyliking^$document
-||reddit.lurkmore.com/r/pussylips^$document
 ||reddit.lurkmore.com/r/pussy_lips^$document
+||reddit.lurkmore.com/r/pussylips^$document
 ||reddit.lurkmore.com/r/pussymoneyweed^$document
 ||reddit.lurkmore.com/r/pussymound^$document
 ||reddit.lurkmore.com/r/pussyobsession^$document
@@ -31126,13 +31074,13 @@
 ||reddit.lurkmore.com/r/randomactsofmuffdive^$document
 ||reddit.lurkmore.com/r/randomactsofnsfw^$document
 ||reddit.lurkmore.com/r/randomactsofnursing^$document
-||reddit.lurkmore.com/r/randomactsoforal^$document
 ||reddit.lurkmore.com/r/random_acts_of_oral^$document
+||reddit.lurkmore.com/r/randomactsoforal^$document
 ||reddit.lurkmore.com/r/randomactsoforalsex^$document
 ||reddit.lurkmore.com/r/randomactsoforaltory^$document
 ||reddit.lurkmore.com/r/random_acts_of_pee^$document
-||reddit.lurkmore.com/r/randomactsofpenis^$document
 ||reddit.lurkmore.com/r/random_acts_of_penis^$document
+||reddit.lurkmore.com/r/randomactsofpenis^$document
 ||reddit.lurkmore.com/r/random_acts_of_pizza^$document
 ||reddit.lurkmore.com/r/randomactsofpms^$document
 ||reddit.lurkmore.com/r/randomactsofpornhub^$document
@@ -31213,7 +31161,6 @@
 ||reddit.lurkmore.com/r/raphaellaferrari^$document
 ||reddit.lurkmore.com/r/rapidgatorporn^$document
 ||reddit.lurkmore.com/r/rapingrapefetishists^$document
-||reddit.lurkmore.com/r/rapingwomen^$document
 ||reddit.lurkmore.com/r/rapingwomen^$document
 ||reddit.lurkmore.com/r/rapistsrights^$document
 ||reddit.lurkmore.com/r/rapunzel^$document
@@ -31483,8 +31430,8 @@
 ||reddit.lurkmore.com/r/realnaughtymodels^$document
 ||reddit.lurkmore.com/r/realnsfw^$document
 ||reddit.lurkmore.com/r/realnsfwasmr^$document
-||reddit.lurkmore.com/r/realnudecelebs^$document
 ||reddit.lurkmore.com/r/real_nude_celebs^$document
+||reddit.lurkmore.com/r/realnudecelebs^$document
 ||reddit.lurkmore.com/r/realnudesofgirlsv2^$document
 ||reddit.lurkmore.com/r/realnyctrees^$document
 ||reddit.lurkmore.com/r/realolderwomen^$document
@@ -31822,8 +31769,8 @@
 ||reddit.lurkmore.com/r/retrofucking^$document
 ||reddit.lurkmore.com/r/retrogals^$document
 ||reddit.lurkmore.com/r/retrooral^$document
-||reddit.lurkmore.com/r/retroporn^$document
 ||reddit.lurkmore.com/r/retro_porn^$document
+||reddit.lurkmore.com/r/retroporn^$document
 ||reddit.lurkmore.com/r/retrousse^$document
 ||reddit.lurkmore.com/r/retrousse_nose^$document
 ||reddit.lurkmore.com/r/retroussetits^$document
@@ -31952,8 +31899,8 @@
 ||reddit.lurkmore.com/r/rileymae^$document
 ||reddit.lurkmore.com/r/rileymason^$document
 ||reddit.lurkmore.com/r/rileynicks^$document
-||reddit.lurkmore.com/r/rileynixon^$document
 ||reddit.lurkmore.com/r/riley_nixon^$document
+||reddit.lurkmore.com/r/rileynixon^$document
 ||reddit.lurkmore.com/r/riley_rasmussen_godde^$document
 ||reddit.lurkmore.com/r/riley_reid^$document
 ||reddit.lurkmore.com/r/rileyreid^$document
@@ -32269,8 +32216,8 @@
 ||reddit.lurkmore.com/r/ruinedorgasms^$document
 ||reddit.lurkmore.com/r/ruinforcei^$document
 ||reddit.lurkmore.com/r/rukhsana^$document
-||reddit.lurkmore.com/r/rule34^$document
 ||reddit.lurkmore.com/r/rule_34^$document
+||reddit.lurkmore.com/r/rule34^$document
 ||reddit.lurkmore.com/r/rule34_abuse^$document
 ||reddit.lurkmore.com/r/rule34_albums^$document
 ||reddit.lurkmore.com/r/rule34_anal^$document
@@ -32309,8 +32256,8 @@
 ||reddit.lurkmore.com/r/rule34fmk^$document
 ||reddit.lurkmore.com/r/rule34forhonor^$document
 ||reddit.lurkmore.com/r/rule34fortnite^$document
-||reddit.lurkmore.com/r/rule34futanari^$document
 ||reddit.lurkmore.com/r/rule34_futanari^$document
+||reddit.lurkmore.com/r/rule34futanari^$document
 ||reddit.lurkmore.com/r/rule34games^$document
 ||reddit.lurkmore.com/r/rule34gamimg^$document
 ||reddit.lurkmore.com/r/rule34gaming^$document
@@ -32340,7 +32287,6 @@
 ||reddit.lurkmore.com/r/rule34_paragon^$document
 ||reddit.lurkmore.com/r/rule34payday^$document
 ||reddit.lurkmore.com/r/rule34pedobear^$document
-||reddit.lurkmore.com/r/rule34pee^$document
 ||reddit.lurkmore.com/r/rule34pee^$document
 ||reddit.lurkmore.com/r/rule34_pegging^$document
 ||reddit.lurkmore.com/r/rule34pictures^$document
@@ -32372,8 +32318,8 @@
 ||reddit.lurkmore.com/r/rule34_wtf^$document
 ||reddit.lurkmore.com/r/rule34yugioh^$document
 ||reddit.lurkmore.com/r/rule35^$document
-||reddit.lurkmore.com/r/rule36^$document
 ||reddit.lurkmore.com/r/rule_36^$document
+||reddit.lurkmore.com/r/rule36^$document
 ||reddit.lurkmore.com/r/rule3porn^$document
 ||reddit.lurkmore.com/r/rule_63^$document
 ||reddit.lurkmore.com/r/rule63lol^$document
@@ -32518,8 +32464,8 @@
 ||reddit.lurkmore.com/r/sailinghotties^$document
 ||reddit.lurkmore.com/r/sailingmisslonestar^$document
 ||reddit.lurkmore.com/r/sailorluna^$document
-||reddit.lurkmore.com/r/sailormoonhentai^$document
 ||reddit.lurkmore.com/r/sailormoon_hentai^$document
+||reddit.lurkmore.com/r/sailormoonhentai^$document
 ||reddit.lurkmore.com/r/sailormoonxxx^$document
 ||reddit.lurkmore.com/r/saintanything^$document
 ||reddit.lurkmore.com/r/saintlysuccubus^$document
@@ -32545,8 +32491,8 @@
 ||reddit.lurkmore.com/r/salex^$document
 ||reddit.lurkmore.com/r/sally_anon^$document
 ||reddit.lurkmore.com/r/sallybangs^$document
-||reddit.lurkmore.com/r/sallydangelo^$document
 ||reddit.lurkmore.com/r/sally_dangelo^$document
+||reddit.lurkmore.com/r/sallydangelo^$document
 ||reddit.lurkmore.com/r/sallyjane^$document
 ||reddit.lurkmore.com/r/sallysquirt^$document
 ||reddit.lurkmore.com/r/salonfetish^$document
@@ -32771,8 +32717,8 @@
 ||reddit.lurkmore.com/r/satansmistressxxx^$document
 ||reddit.lurkmore.com/r/satellablack^$document
 ||reddit.lurkmore.com/r/satineecapona^$document
-||reddit.lurkmore.com/r/satinfetish^$document
 ||reddit.lurkmore.com/r/satin_fetish^$document
+||reddit.lurkmore.com/r/satinfetish^$document
 ||reddit.lurkmore.com/r/satingirls^$document
 ||reddit.lurkmore.com/r/satinpanties^$document
 ||reddit.lurkmore.com/r/satinporn^$document
@@ -33239,8 +33185,8 @@
 ||reddit.lurkmore.com/r/sex_^$document
 ||reddit.lurkmore.com/r/sex366^$document
 ||reddit.lurkmore.com/r/sexadultvideos^$document
-||reddit.lurkmore.com/r/sexadvice^$document
 ||reddit.lurkmore.com/r/sex_advice^$document
+||reddit.lurkmore.com/r/sexadvice^$document
 ||reddit.lurkmore.com/r/sexaesthetic^$document
 ||reddit.lurkmore.com/r/sexaholicsanonymous^$document
 ||reddit.lurkmore.com/r/sexamateur^$document
@@ -33308,8 +33254,8 @@
 ||reddit.lurkmore.com/r/sexfreevideos^$document
 ||reddit.lurkmore.com/r/sexfrombelow^$document
 ||reddit.lurkmore.com/r/sexfucklove^$document
-||reddit.lurkmore.com/r/sexgames^$document
 ||reddit.lurkmore.com/r/sex_games^$document
+||reddit.lurkmore.com/r/sexgames^$document
 ||reddit.lurkmore.com/r/sexgaming^$document
 ||reddit.lurkmore.com/r/sexgaze^$document
 ||reddit.lurkmore.com/r/sex_geek^$document
@@ -33487,7 +33433,6 @@
 ||reddit.lurkmore.com/r/sex_vibes^$document
 ||reddit.lurkmore.com/r/sexvid^$document
 ||reddit.lurkmore.com/r/sexvideogames^$document
-||reddit.lurkmore.com/r/sexvideogames^$document
 ||reddit.lurkmore.com/r/sex_videos_pic_xxx^$document
 ||reddit.lurkmore.com/r/sexvr^$document
 ||reddit.lurkmore.com/r/sexwearingsocks^$document
@@ -33546,14 +33491,14 @@
 ||reddit.lurkmore.com/r/sexyasianamateurs^$document
 ||reddit.lurkmore.com/r/sexyasianbabes^$document
 ||reddit.lurkmore.com/r/sexyasiancamgirls^$document
-||reddit.lurkmore.com/r/sexyasiangirls^$document
 ||reddit.lurkmore.com/r/sexy_asian_girls^$document
+||reddit.lurkmore.com/r/sexyasiangirls^$document
 ||reddit.lurkmore.com/r/sexyasianhottie^$document
 ||reddit.lurkmore.com/r/sexyasianladies^$document
 ||reddit.lurkmore.com/r/sexyasianmen^$document
 ||reddit.lurkmore.com/r/sexyasianpicsandvids^$document
-||reddit.lurkmore.com/r/sexyasians^$document
 ||reddit.lurkmore.com/r/sexy_asians^$document
+||reddit.lurkmore.com/r/sexyasians^$document
 ||reddit.lurkmore.com/r/sexyasianteen^$document
 ||reddit.lurkmore.com/r/sexyasianxxx^$document
 ||reddit.lurkmore.com/r/sexyasmr^$document
@@ -33688,8 +33633,8 @@
 ||reddit.lurkmore.com/r/sexy_girl69^$document
 ||reddit.lurkmore.com/r/sexygirlclub^$document
 ||reddit.lurkmore.com/r/sexygirlof18years^$document
-||reddit.lurkmore.com/r/sexygirls^$document
 ||reddit.lurkmore.com/r/sexy_girls_^$document
+||reddit.lurkmore.com/r/sexygirls^$document
 ||reddit.lurkmore.com/r/sexygirlsamateur^$document
 ||reddit.lurkmore.com/r/sexygirlscam^$document
 ||reddit.lurkmore.com/r/sexygirlsdaily^$document
@@ -33894,7 +33839,6 @@
 ||reddit.lurkmore.com/r/sexystomachs^$document
 ||reddit.lurkmore.com/r/sexystoners^$document
 ||reddit.lurkmore.com/r/sexystories^$document
-||reddit.lurkmore.com/r/sexystories^$document
 ||reddit.lurkmore.com/r/sexystoriesofouryouth^$document
 ||reddit.lurkmore.com/r/sexystout^$document
 ||reddit.lurkmore.com/r/sexystreamers^$document
@@ -33928,8 +33872,8 @@
 ||reddit.lurkmore.com/r/sexyuniforms^$document
 ||reddit.lurkmore.com/r/sexyvampires^$document
 ||reddit.lurkmore.com/r/sexyvelma^$document
-||reddit.lurkmore.com/r/sexyvenera^$document
 ||reddit.lurkmore.com/r/sexy_venera^$document
+||reddit.lurkmore.com/r/sexyvenera^$document
 ||reddit.lurkmore.com/r/sexyvids18^$document
 ||reddit.lurkmore.com/r/sexyviewfromdownunder^$document
 ||reddit.lurkmore.com/r/sexyviralbabes^$document
@@ -34048,8 +33992,8 @@
 ||reddit.lurkmore.com/r/sharingmytits^$document
 ||reddit.lurkmore.com/r/sharingmywife^$document
 ||reddit.lurkmore.com/r/sharingtwo^$document
-||reddit.lurkmore.com/r/sharizel^$document
 ||reddit.lurkmore.com/r/sha_rizel^$document
+||reddit.lurkmore.com/r/sharizel^$document
 ||reddit.lurkmore.com/r/sharkablue^$document
 ||reddit.lurkmore.com/r/sharkiesgw^$document
 ||reddit.lurkmore.com/r/sharktits^$document
@@ -34210,8 +34154,8 @@
 ||reddit.lurkmore.com/r/shemaletubexx^$document
 ||reddit.lurkmore.com/r/shemalevideos^$document
 ||reddit.lurkmore.com/r/shemalevideosclub^$document
-||reddit.lurkmore.com/r/shemalevids^$document
 ||reddit.lurkmore.com/r/shemale_vids^$document
+||reddit.lurkmore.com/r/shemalevids^$document
 ||reddit.lurkmore.com/r/shemalevrporn^$document
 ||reddit.lurkmore.com/r/shemalewithhardcock^$document
 ||reddit.lurkmore.com/r/shemalexxx^$document
@@ -34283,7 +34227,6 @@
 ||reddit.lurkmore.com/r/shinylips^$document
 ||reddit.lurkmore.com/r/shinymales^$document
 ||reddit.lurkmore.com/r/shinypants^$document
-||reddit.lurkmore.com/r/shinyporn^$document
 ||reddit.lurkmore.com/r/shinyporn^$document
 ||reddit.lurkmore.com/r/shinys^$document
 ||reddit.lurkmore.com/r/shinytraps^$document
@@ -34400,8 +34343,8 @@
 ||reddit.lurkmore.com/r/shortshorts^$document
 ||reddit.lurkmore.com/r/shortskirtnojacket^$document
 ||reddit.lurkmore.com/r/shortskirts^$document
-||reddit.lurkmore.com/r/shortstacks^$document
 ||reddit.lurkmore.com/r/short_stacks^$document
+||reddit.lurkmore.com/r/shortstacks^$document
 ||reddit.lurkmore.com/r/shortxsweet^$document
 ||reddit.lurkmore.com/r/shotabot^$document
 ||reddit.lurkmore.com/r/shottatexts^$document
@@ -34696,8 +34639,8 @@
 ||reddit.lurkmore.com/r/sissyheaven^$document
 ||reddit.lurkmore.com/r/sissyhentai^$document
 ||reddit.lurkmore.com/r/sissyhubbies^$document
-||reddit.lurkmore.com/r/sissyhumiliation^$document
 ||reddit.lurkmore.com/r/sissy_humiliation^$document
+||reddit.lurkmore.com/r/sissyhumiliation^$document
 ||reddit.lurkmore.com/r/sissyhypno^$document
 ||reddit.lurkmore.com/r/sissyhypnoplus^$document
 ||reddit.lurkmore.com/r/sissyhypnosis^$document
@@ -34841,8 +34784,8 @@
 ||reddit.lurkmore.com/r/skyeevans^$document
 ||reddit.lurkmore.com/r/skyewest^$document
 ||reddit.lurkmore.com/r/skylafucks^$document
-||reddit.lurkmore.com/r/skylanovea^$document
 ||reddit.lurkmore.com/r/skyla_novea^$document
+||reddit.lurkmore.com/r/skylanovea^$document
 ||reddit.lurkmore.com/r/skylargreen^$document
 ||reddit.lurkmore.com/r/skylarker69^$document
 ||reddit.lurkmore.com/r/skylarsnow^$document
@@ -34929,7 +34872,6 @@
 ||reddit.lurkmore.com/r/slimgirls^$document
 ||reddit.lurkmore.com/r/slimsquirrelhate^$document
 ||reddit.lurkmore.com/r/slimthick^$document
-||reddit.lurkmore.com/r/slingbikini^$document
 ||reddit.lurkmore.com/r/slingbikini^$document
 ||reddit.lurkmore.com/r/slingshotbikinis^$document
 ||reddit.lurkmore.com/r/slink^$document
@@ -35379,8 +35321,8 @@
 ||reddit.lurkmore.com/r/softandshort^$document
 ||reddit.lurkmore.com/r/softbdsm^$document
 ||reddit.lurkmore.com/r/softblow^$document
-||reddit.lurkmore.com/r/softbodies^$document
 ||reddit.lurkmore.com/r/soft_bodies^$document
+||reddit.lurkmore.com/r/softbodies^$document
 ||reddit.lurkmore.com/r/softboobies^$document
 ||reddit.lurkmore.com/r/softboobs^$document
 ||reddit.lurkmore.com/r/softboobsnet^$document
@@ -35430,8 +35372,8 @@
 ||reddit.lurkmore.com/r/solobdsm^$document
 ||reddit.lurkmore.com/r/solofeet^$document
 ||reddit.lurkmore.com/r/solofemale^$document
-||reddit.lurkmore.com/r/sologirls^$document
 ||reddit.lurkmore.com/r/solo_girls^$document
+||reddit.lurkmore.com/r/sologirls^$document
 ||reddit.lurkmore.com/r/sologirls_nsfw^$document
 ||reddit.lurkmore.com/r/solo_gonewild^$document
 ||reddit.lurkmore.com/r/solomale^$document
@@ -35656,8 +35598,8 @@
 ||reddit.lurkmore.com/r/spermjoy^$document
 ||reddit.lurkmore.com/r/spermmania^$document
 ||reddit.lurkmore.com/r/sph^$document
-||reddit.lurkmore.com/r/sphcaptions^$document
 ||reddit.lurkmore.com/r/sph_captions^$document
+||reddit.lurkmore.com/r/sphcaptions^$document
 ||reddit.lurkmore.com/r/sphfetish^$document
 ||reddit.lurkmore.com/r/spicybuttholes^$document
 ||reddit.lurkmore.com/r/spicy_couple^$document
@@ -35794,9 +35736,8 @@
 ||reddit.lurkmore.com/r/squatass^$document
 ||reddit.lurkmore.com/r/squatcobbler^$document
 ||reddit.lurkmore.com/r/squatcobblers^$document
-||reddit.lurkmore.com/r/squatfuck^$document
-||reddit.lurkmore.com/r/squatfuck^$document
 ||reddit.lurkmore.com/r/squat_fuck^$document
+||reddit.lurkmore.com/r/squatfuck^$document
 ||reddit.lurkmore.com/r/squatfucking^$document
 ||reddit.lurkmore.com/r/squatmasturbating^$document
 ||reddit.lurkmore.com/r/squatnsfw^$document
@@ -35819,8 +35760,8 @@
 ||reddit.lurkmore.com/r/squirt_^$document
 ||reddit.lurkmore.com/r/squirtfacial^$document
 ||reddit.lurkmore.com/r/squirtfromanal^$document
-||reddit.lurkmore.com/r/squirtgif^$document
 ||reddit.lurkmore.com/r/squirt_gif^$document
+||reddit.lurkmore.com/r/squirtgif^$document
 ||reddit.lurkmore.com/r/squirtgonewild^$document
 ||reddit.lurkmore.com/r/squirting^$document
 ||reddit.lurkmore.com/r/squirtingasians^$document
@@ -36119,8 +36060,8 @@
 ||reddit.lurkmore.com/r/stonerboners^$document
 ||reddit.lurkmore.com/r/stonerci^$document
 ||reddit.lurkmore.com/r/stonerfurs^$document
-||reddit.lurkmore.com/r/stonergirls^$document
 ||reddit.lurkmore.com/r/stoner_girls^$document
+||reddit.lurkmore.com/r/stonergirls^$document
 ||reddit.lurkmore.com/r/stonerlpt^$document
 ||reddit.lurkmore.com/r/stonetossrule34^$document
 ||reddit.lurkmore.com/r/stoneybolognaslut^$document
@@ -36836,9 +36777,7 @@
 ||reddit.lurkmore.com/r/tableupskirt^$document
 ||reddit.lurkmore.com/r/taboo_adultblogs^$document
 ||reddit.lurkmore.com/r/taboocaptions^$document
-||reddit.lurkmore.com/r/taboocaptions^$document
 ||reddit.lurkmore.com/r/tabooerotica^$document
-||reddit.lurkmore.com/r/taboofans^$document
 ||reddit.lurkmore.com/r/taboofans^$document
 ||reddit.lurkmore.com/r/taboofantasies^$document
 ||reddit.lurkmore.com/r/taboofiction^$document
@@ -36968,8 +36907,8 @@
 ||reddit.lurkmore.com/r/tanktugging^$document
 ||reddit.lurkmore.com/r/tan_lined_boobs^$document
 ||reddit.lurkmore.com/r/tanlinedtgirl^$document
-||reddit.lurkmore.com/r/tanlines^$document
 ||reddit.lurkmore.com/r/tan_lines^$document
+||reddit.lurkmore.com/r/tanlines^$document
 ||reddit.lurkmore.com/r/tanlines4ever^$document
 ||reddit.lurkmore.com/r/tanlineshentai^$document
 ||reddit.lurkmore.com/r/tanlinetittyfuck^$document
@@ -37148,7 +37087,6 @@
 ||reddit.lurkmore.com/r/tease_it^$document
 ||reddit.lurkmore.com/r/teasemepleaseme^$document
 ||reddit.lurkmore.com/r/teaseonly^$document
-||reddit.lurkmore.com/r/teaseonly^$document
 ||reddit.lurkmore.com/r/teaseplease^$document
 ||reddit.lurkmore.com/r/teaser^$document
 ||reddit.lurkmore.com/r/teasethetip^$document
@@ -37191,8 +37129,8 @@
 ||reddit.lurkmore.com/r/teenjoi^$document
 ||reddit.lurkmore.com/r/teenkasia^$document
 ||reddit.lurkmore.com/r/teenlatina^$document
-||reddit.lurkmore.com/r/teenlesbians^$document
 ||reddit.lurkmore.com/r/teen_lesbians^$document
+||reddit.lurkmore.com/r/teenlesbians^$document
 ||reddit.lurkmore.com/r/teenlove^$document
 ||reddit.lurkmore.com/r/teenmegaworld^$document
 ||reddit.lurkmore.com/r/teenolga^$document
@@ -37388,7 +37326,6 @@
 ||reddit.lurkmore.com/r/tgirl_pics^$document
 ||reddit.lurkmore.com/r/tgirlpov^$document
 ||reddit.lurkmore.com/r/tgirl_presenting^$document
-||reddit.lurkmore.com/r/tgirls^$document
 ||reddit.lurkmore.com/r/tgirls^$document
 ||reddit.lurkmore.com/r/tgirlsaddict^$document
 ||reddit.lurkmore.com/r/tgirlsannouncing^$document
@@ -37848,7 +37785,6 @@
 ||reddit.lurkmore.com/r/therealdeal^$document
 ||reddit.lurkmore.com/r/therealedgy^$document
 ||reddit.lurkmore.com/r/the_real_frisk^$document
-||reddit.lurkmore.com/r/the_real_frisk^$document
 ||reddit.lurkmore.com/r/therealkyan^$document
 ||reddit.lurkmore.com/r/therealredpill^$document
 ||reddit.lurkmore.com/r/therealrosesapphire^$document
@@ -38107,7 +38043,6 @@
 ||reddit.lurkmore.com/r/thinspiration^$document
 ||reddit.lurkmore.com/r/thinspire^$document
 ||reddit.lurkmore.com/r/thinspo^$document
-||reddit.lurkmore.com/r/thinspo^$document
 ||reddit.lurkmore.com/r/thinsponsfw^$document
 ||reddit.lurkmore.com/r/thinwomen^$document
 ||reddit.lurkmore.com/r/thirdfavs^$document
@@ -38178,8 +38113,8 @@
 ||reddit.lurkmore.com/r/threesomegallery^$document
 ||reddit.lurkmore.com/r/threesome_gangbang^$document
 ||reddit.lurkmore.com/r/threesome_lesbian^$document
-||reddit.lurkmore.com/r/threesomeporn^$document
 ||reddit.lurkmore.com/r/threesome_porn^$document
+||reddit.lurkmore.com/r/threesomeporn^$document
 ||reddit.lurkmore.com/r/threesomepornhd^$document
 ||reddit.lurkmore.com/r/threesomes^$document
 ||reddit.lurkmore.com/r/threesomesex^$document
@@ -38555,8 +38490,8 @@
 ||reddit.lurkmore.com/r/tittydrops^$document
 ||reddit.lurkmore.com/r/tittyfest^$document
 ||reddit.lurkmore.com/r/tittyfoodporn^$document
-||reddit.lurkmore.com/r/tittyfuck^$document
 ||reddit.lurkmore.com/r/titty_fuck^$document
+||reddit.lurkmore.com/r/tittyfuck^$document
 ||reddit.lurkmore.com/r/tittyfuckfinishes^$document
 ||reddit.lurkmore.com/r/titty_fuck_gif^$document
 ||reddit.lurkmore.com/r/tittyfuck_gone_wild^$document
@@ -38652,8 +38587,8 @@
 ||reddit.lurkmore.com/r/tonedassholes^$document
 ||reddit.lurkmore.com/r/tongue^$document
 ||reddit.lurkmore.com/r/tongueandmouth^$document
-||reddit.lurkmore.com/r/tonguefetish^$document
 ||reddit.lurkmore.com/r/tongue_fetish^$document
+||reddit.lurkmore.com/r/tonguefetish^$document
 ||reddit.lurkmore.com/r/tongueformyclit^$document
 ||reddit.lurkmore.com/r/tonguegirls^$document
 ||reddit.lurkmore.com/r/tongue_hentai^$document
@@ -38674,8 +38609,8 @@
 ||reddit.lurkmore.com/r/toobigforthecamera^$document
 ||reddit.lurkmore.com/r/toobrave^$document
 ||reddit.lurkmore.com/r/toobs^$document
-||reddit.lurkmore.com/r/toochikash^$document
 ||reddit.lurkmore.com/r/toochi_kash^$document
+||reddit.lurkmore.com/r/toochikash^$document
 ||reddit.lurkmore.com/r/toocuteforporn^$document
 ||reddit.lurkmore.com/r/toocuteforporn_gifs^$document
 ||reddit.lurkmore.com/r/toointense^$document
@@ -38769,8 +38704,8 @@
 ||reddit.lurkmore.com/r/toronto_bbc^$document
 ||reddit.lurkmore.com/r/torontoblowjob^$document
 ||reddit.lurkmore.com/r/torontobrownjobud^$document
-||reddit.lurkmore.com/r/torontohookups^$document
 ||reddit.lurkmore.com/r/toronto_hookups^$document
+||reddit.lurkmore.com/r/torontohookups^$document
 ||reddit.lurkmore.com/r/torontosex^$document
 ||reddit.lurkmore.com/r/torontosissies^$document
 ||reddit.lurkmore.com/r/torontoswingers^$document
@@ -39655,8 +39590,8 @@
 ||reddit.lurkmore.com/r/uneventits^$document
 ||reddit.lurkmore.com/r/unexpectedbeaver^$document
 ||reddit.lurkmore.com/r/unexpectedblowjob^$document
-||reddit.lurkmore.com/r/unexpectedcreampie^$document
 ||reddit.lurkmore.com/r/unexpected_creampie^$document
+||reddit.lurkmore.com/r/unexpectedcreampie^$document
 ||reddit.lurkmore.com/r/unexpectedcum^$document
 ||reddit.lurkmore.com/r/unexpecteddeepthroat^$document
 ||reddit.lurkmore.com/r/unexpectedfetish^$document
@@ -39904,8 +39839,8 @@
 ||reddit.lurkmore.com/r/valentina_jewels^$document
 ||reddit.lurkmore.com/r/valentinajewels^$document
 ||reddit.lurkmore.com/r/valentinamatteucci^$document
-||reddit.lurkmore.com/r/valentinanappi^$document
 ||reddit.lurkmore.com/r/valentina_nappi^$document
+||reddit.lurkmore.com/r/valentinanappi^$document
 ||reddit.lurkmore.com/r/valentinanappi_xxx^$document
 ||reddit.lurkmore.com/r/valentinaparadis^$document
 ||reddit.lurkmore.com/r/valentina_porn^$document
@@ -39941,7 +39876,6 @@
 ||reddit.lurkmore.com/r/vampireporn^$document
 ||reddit.lurkmore.com/r/vampiresex^$document
 ||reddit.lurkmore.com/r/vampiresnsfw^$document
-||reddit.lurkmore.com/r/vamps^$document
 ||reddit.lurkmore.com/r/vamps^$document
 ||reddit.lurkmore.com/r/vampyricblackmetal^$document
 ||reddit.lurkmore.com/r/vamscenes^$document
@@ -40004,8 +39938,8 @@
 ||reddit.lurkmore.com/r/vaperaffles^$document
 ||reddit.lurkmore.com/r/vapereviewerslounge^$document
 ||reddit.lurkmore.com/r/vaperights^$document
-||reddit.lurkmore.com/r/vapersgonewild^$document
 ||reddit.lurkmore.com/r/vapers_gonewild^$document
+||reddit.lurkmore.com/r/vapersgonewild^$document
 ||reddit.lurkmore.com/r/vapesstores^$document
 ||reddit.lurkmore.com/r/vapeus^$document
 ||reddit.lurkmore.com/r/vapeutah^$document
@@ -40468,8 +40402,8 @@
 ||reddit.lurkmore.com/r/vrpornstars^$document
 ||reddit.lurkmore.com/r/vrpornstash^$document
 ||reddit.lurkmore.com/r/vr_porn_videos^$document
-||reddit.lurkmore.com/r/vrpornvideos^$document
 ||reddit.lurkmore.com/r/vrporn_videos^$document
+||reddit.lurkmore.com/r/vrpornvideos^$document
 ||reddit.lurkmore.com/r/vrpornxworld^$document
 ||reddit.lurkmore.com/r/vr_sex^$document
 ||reddit.lurkmore.com/r/vrsex_hdvideos^$document
@@ -41127,7 +41061,6 @@
 ||reddit.lurkmore.com/r/wiki_erotic^$document
 ||reddit.lurkmore.com/r/wikipediagw^$document
 ||reddit.lurkmore.com/r/wikipediatitties^$document
-||reddit.lurkmore.com/r/wikipediatitties^$document
 ||reddit.lurkmore.com/r/wildbff^$document
 ||reddit.lurkmore.com/r/wild_ent1214^$document
 ||reddit.lurkmore.com/r/wildfemale^$document
@@ -41171,7 +41104,6 @@
 ||reddit.lurkmore.com/r/wincest_gif_captions^$document
 ||reddit.lurkmore.com/r/wincestgifsandstuff^$document
 ||reddit.lurkmore.com/r/wincestiality^$document
-||reddit.lurkmore.com/r/wincesttexts^$document
 ||reddit.lurkmore.com/r/wincesttexts^$document
 ||reddit.lurkmore.com/r/windbtsporn^$document
 ||reddit.lurkmore.com/r/windemerewubs^$document
@@ -41482,10 +41414,10 @@
 ||reddit.lurkmore.com/r/wtfisthisdoinginwtf^$document
 ||reddit.lurkmore.com/r/wtfisthisthing^$document
 ||reddit.lurkmore.com/r/wtf_mamesxx^$document
-||reddit.lurkmore.com/r/wtfnsfw^$document
 ||reddit.lurkmore.com/r/wtf_nsfw^$document
-||reddit.lurkmore.com/r/wtfporn^$document
+||reddit.lurkmore.com/r/wtfnsfw^$document
 ||reddit.lurkmore.com/r/wtf_porn^$document
+||reddit.lurkmore.com/r/wtfporn^$document
 ||reddit.lurkmore.com/r/wtf_porn_gifs^$document
 ||reddit.lurkmore.com/r/wtfprotips^$document
 ||reddit.lurkmore.com/r/wtfuck_sets^$document
@@ -41515,8 +41447,8 @@
 ||reddit.lurkmore.com/r/xanland^$document
 ||reddit.lurkmore.com/r/xannnah^$document
 ||reddit.lurkmore.com/r/xannycart3l^$document
-||reddit.lurkmore.com/r/xart^$document
 ||reddit.lurkmore.com/r/x_art^$document
+||reddit.lurkmore.com/r/xart^$document
 ||reddit.lurkmore.com/r/xartbabes^$document
 ||reddit.lurkmore.com/r/xasian^$document
 ||reddit.lurkmore.com/r/xass^$document
@@ -41530,8 +41462,8 @@
 ||reddit.lurkmore.com/r/xcafenude^$document
 ||reddit.lurkmore.com/r/xcamgirls^$document
 ||reddit.lurkmore.com/r/x_celebs_21_9^$document
-||reddit.lurkmore.com/r/xchange^$document
 ||reddit.lurkmore.com/r/x_change^$document
+||reddit.lurkmore.com/r/xchange^$document
 ||reddit.lurkmore.com/r/xchangefantasies^$document
 ||reddit.lurkmore.com/r/xchangegifs^$document
 ||reddit.lurkmore.com/r/xchangepill^$document
@@ -41595,9 +41527,9 @@
 ||reddit.lurkmore.com/r/xnxxsexstories^$document
 ||reddit.lurkmore.com/r/xodaphnebb^$document
 ||reddit.lurkmore.com/r/xodor2^$document
+||reddit.lurkmore.com/r/xo_gisele^$document
 ||reddit.lurkmore.com/r/xo_gisele_^$document
 ||reddit.lurkmore.com/r/xogisele^$document
-||reddit.lurkmore.com/r/xo_gisele^$document
 ||reddit.lurkmore.com/r/xohopeiero^$document
 ||reddit.lurkmore.com/r/xojuniper^$document
 ||reddit.lurkmore.com/r/xokisslandd^$document
@@ -41849,7 +41781,6 @@
 ||reddit.lurkmore.com/r/yespornplease^$document
 ||reddit.lurkmore.com/r/yespornpleasevideos^$document
 ||reddit.lurkmore.com/r/yesshesquats^$document
-||reddit.lurkmore.com/r/yesshesquats^$document
 ||reddit.lurkmore.com/r/yetibutts^$document
 ||reddit.lurkmore.com/r/yetigonewild^$document
 ||reddit.lurkmore.com/r/yetiyeet1^$document
@@ -42045,7 +41976,6 @@
 ||reddit.lurkmore.com/r/youtubesexyvideos^$document
 ||reddit.lurkmore.com/r/youtubetease^$document
 ||reddit.lurkmore.com/r/youtubetitties^$document
-||reddit.lurkmore.com/r/youtubetitties^$document
 ||reddit.lurkmore.com/r/youtwerk^$document
 ||reddit.lurkmore.com/r/youwillpleaseme^$document
 ||reddit.lurkmore.com/r/ysatori^$document
@@ -42062,8 +41992,8 @@
 ||reddit.lurkmore.com/r/yukijin^$document
 ||reddit.lurkmore.com/r/yuki_model^$document
 ||reddit.lurkmore.com/r/yulialogacheva^$document
-||reddit.lurkmore.com/r/yulianova^$document
 ||reddit.lurkmore.com/r/yulia_nova^$document
+||reddit.lurkmore.com/r/yulianova^$document
 ||reddit.lurkmore.com/r/yuliashershevskaya^$document
 ||reddit.lurkmore.com/r/yuliayaroshenko^$document
 ||reddit.lurkmore.com/r/yuliazubova^$document
